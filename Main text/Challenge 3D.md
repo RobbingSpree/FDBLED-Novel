@@ -1,0 +1,45 @@
+# That Way Madness Lies
+
+### 3:04pm Saturday - Gavin
+
+Yeah, I deserved that.
+
+Half an hour of trying to be a wingman for Felicity, and Amity just kept giving me the saddest glances. Is she actually gay? Was this whole thing just a extended rouse to try and woo me? Did they think it would be easier to forcefem a cis guy if they forcefemmed themself too? Does that make them gay?
+
+Honestly, chat, I don't think the word gay is robust enough in its definition to cover the nonsense we've gotten ourselves into.
+
+What do you think, Amity?
+
+"So what now?"
+
+"We call it a draw and go home? These tights are causing me more problems than being observed possibly could." Yeah, at this point I'm fine with a gentleman's agreement. This whole thing might have been a mistake. I need to stop getting so riled up when it comes to trying to dress femme.
+
+I hold out my hand to offer it for a shake.
+
+Amity stares at it confused for a few seconds, as if she forgot how to shake hands, before grasping my hand and giving it a solid heave ho. Her hands are small and delicate, like the rest of her. Him. Like the rest of him. 
+
+I do wonder how David thinks of me. Am I just a freak in a dress? Felicity didn't even blink twice at the fact I was wearing a dress. Though...she also didn't notice I wasn't wearing my beanie until she was standing next to me. Maybe her eyes were on Amity the whole time. She doesn't see me as a woman, and as one herself she's pretty much the expert I would defer to on if I count as one. If other women don't see me as one, who am I to disagree? David isn't an expert here, he's also a man. A man's man. A man who's engaged in some really weird mind games. So not much of a reliable source on the topic.
+
+David let's go of my hand, and we walk our seperate ways. I'm heading straight back to the disabled toilet to change clothes and take off this bra. David heads back the way he dragged me before we got to the food court and vanishes amungst the crowd.
+
+Maybe this is the end. We both concede this isn't a game we need to play and never mention it again. These clothes will just be a treasure I keep 'till I'm old and grey that give me comfort that I got close, but not close enough. That if I squint, I could see it, I could see a woman who might look like me. 
+
+But she isn't me.
+
+I'm no woman.
+
+***
+
+### 3:10pm Friday - Amity
+
+I only have a few minutes.
+
+Gavin obviously went to change back into their non-torture clothes. So I have however long it takes from them to change that I can move around the mall with no one the wiser.
+
+So I'm just going to go back to the leigerie shop and buy those better fillers.
+
+I don't know what I look like without the pads. But if she could get results that convincing to me, a felonious boob looker, maybe I can convince myself I have a pair too.
+
+"Ahh, welcome back, miss." She thinks she got me with the hard sell (and the kind of sexual harassment), and she's right. But I don't have time for banter.
+
+"I was wondering about the item we were discussing earlier."

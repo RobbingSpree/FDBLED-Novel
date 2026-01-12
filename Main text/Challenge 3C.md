@@ -4,7 +4,7 @@
 
 I don't know what happened out there. But Amity looks haggard now.
 
-She lead me to the food court and almost collapsed into a chair…she didn't let go of my hand the entire time, so I sat opposite her and gently tugged my hand free.
+She lead me to the food court and almost collapsed into a chair…she didn't let go of my hand the entire time, so I sat opposite her and gently tugged my hand free while she was lost in thoughts.
 
 And we've just been sitting here in silence since.
 
@@ -14,23 +14,23 @@ I did try on the bra though…
 
 Actually…
 
-I twist my torso, pretending to read the menu from a nearby fast food place. Sure enough, I can feel the bra on my skin. Amity dragged me out of that shop while I was still wearing it.
+I twist my torso, pretending to read the menu from a nearby fast food place. Sure enough, I can feel the bra on my skin. Amity dragged me out of that shop while I was still wearing it. The outside made it seem like it was going to be rough and unpleasant on my skin, but this is surprisingly soft. And again, Amity has guessed clothes that fit me surprisingly well. What is she hiding?
 
-She had demanded I show her proof I tried it on, so what else was I supposed to do? 
+She had demanded I show her proof I tried it on, so what else was I supposed to do? Not put it on and go hungry?
 
 She forced me to steal it. 
 
-Really glad the alarms didn't go off when we left. I think they had turned it off since a delivery had just come in, cause I have no idea why the anti-theft device didn't cause the alarms to trip.
+Really glad the alarms didn't go off when we left. I think they had turned it off since a delivery had just come in, cause I have no idea otherwise why the anti-theft device didn't cause the alarms to trip when we left.
 
 Actually…how do I get that off now?
 
-Is it one of those dye packs or something? Is it going to explode on me?
+Is it one of those dye packs or something? Is it going to explode on me? Do I need a really big magnet? I can't go into a different shop to get help, they'll think it's some kind of elaborate scam.
 
-I can't ask Amity to look it up, she's both comatose and I don't think she knows I was wearing it. There's no way she planned that. Wait...did she? She bet me to go in, gave me an offer I couldn't refuse and then dragged me out of the store so I can't take the bra back off?
+I can't ask Amity to look it up, she's both comatose and I don't think she knows I was wearing it. Also, I don't know if I want her to see me in nothing but a bra. There's no way she planned this just to see me naked. Wait...did she? She bet me to go in, gave me an offer I couldn't refuse and then dragged me out of the store so I can't take the bra back off?
 
 ...That does sound plausible.
 
-We are competing for who can last the longest. In now wearing something that'll set off half the alarms in the mall. I can't go into any more stores without attracting more attention, and possibly the police.
+We are competing for who can last the longest. I'm now wearing something that'll set off half the alarms in the mall. I can't go into any more stores without attracting more attention, and possibly the police. She snookered me! The bitch!
 
 I need space.
 
@@ -38,7 +38,7 @@ I need space.
 
 Amity perks up as I say that, a creepy smile spreads over her face, but whatever happened to her in the lingerie shop is still hanging over her- him. Him. It's haunting Him. And his eyes still look dead inside (don't open).
 
-I'm gonna take a leaf from Flik's book and get some space and try to work out if they really did just make me steal a hundred and fifty bucks worth of bra.
+I'm gonna take a leaf from Flik's book and get some space and spy on them from a distance to try and work out if they really did just make me steal a hundred and fifty bucks worth of bra for perverted reasons.
 
 Bras can't all be that expensive…right?
 
@@ -122,9 +122,9 @@ Yeah. I've seen people do that before. Totally normal. See Grace, I can do thing
 
 "You're so short and cute." Lady! You CAN'T just bust that stuff out from the jump. What is going on? Is this a setup? It must be.
 
-"So how did you two meet?"
+"So how did you two meet?" I need to pivot attention away from me before I blush so hard I burst into flames.
 
-"I've known Gavin since orientation, he met me a few weeks later cause I saw him lazing in the sun every time I finally talked to him instead of walking passed. You were wearing that weird beanie you always wear...wait, how did I not notice you weren't wearing it today? Is this what your hair looks like without it?"
+"I've known Gavin since orientation, he met me a few weeks later cause I saw him lazing in the sun every day and I finally talked to him instead of walking passed and we were fast friends. You were wearing that weird beanie you always wear...wait, how did I not notice you weren't wearing it today? Is this what your hair looks like without it?"
 
 Who?
 
@@ -136,4 +136,16 @@ Felicity sat down and someone sat down next to her, I force myself to walk back 
 
 Someone puts a Hallal Snack Pack on the table between us all and fans out a bunch of wooden forks.
 
-Was I not here with Grace the whole time? Who was I competing with?
+Was I not here with Grace the whole time? Who was I competing with? That's Grace!
+
+"Are you studying computer science too, Felicity?" Does she not..? Know? Wait...do just Aaron and I know the name Grace? Do I tell Felicity? 
+
+"No..." No. "...I'm doing visual arts, gotta slog through one more semester of stuff that isn't one hundred percent photography. Then every class I'm taking lets me break out the mirrorless beauty."
+
+If I tell Felicity that Grace is the name for when...
+
+Wait...what am I calling Gavin that for? It was for teasing and being dorks, right? Gavin isn't trans like I am. Have I just been projecting this whole time? Was I that desperate for a trans friend I could experience exploring gender with that I forced a friend to crossdress?
+
+The egg prime directive is bullshit. If Gavin was secretly trans this week would have given them more than enough chances to come to terms and announce a new gender. But they've been acting like they wanted to do anything but this whole time. You want this to be over, don't you Gavin?
+
+
