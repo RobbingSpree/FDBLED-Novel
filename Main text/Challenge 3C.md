@@ -116,6 +116,24 @@ NO! Amity, stay calm. You can do things. You have done things before and, if you
 
 "Hi." No! Bad hands. Ladies don't shake hands when they greet. That's a dude thing. Fuck! What do ladies do when they meet? Kiss?
 
-I stand up and brush nothing off my lap, give her a quick hug and kiss the air near her head.
+I stand up and brush some nothing off my lap, give her a quick hug on tip toes and kiss the air near her head.
 
-Yeah. I've seen people do that before. Totally normal. See Grace, I can do things. You thought you could make me concede just with a…wait…she said I was cute? And Felicity didn't correct her?
+Yeah. I've seen people do that before. Totally normal. See Grace, I can do things. You thought you could make me concede just with a…wait…she said I was cute? And Felicity didn't correct her? 
+
+"You're so short and cute." Lady! You CAN'T just bust that stuff out from the jump. What is going on? Is this a setup? It must be.
+
+"So how did you two meet?"
+
+"I've known Gavin since orientation, he met me a few weeks later cause I saw him lazing in the sun every time I finally talked to him instead of walking passed. You were wearing that weird beanie you always wear...wait, how did I not notice you weren't wearing it today? Is this what your hair looks like without it?"
+
+Who?
+
+"It's not sanitary to wear the same hat every day"
+
+...But that's Grace...
+
+Felicity sat down and someone sat down next to her, I force myself to walk back to the other side of the table and sit down also.
+
+Someone puts a Hallal Snack Pack on the table between us all and fans out a bunch of wooden forks.
+
+Was I not here with Grace the whole time? Who was I competing with?
