@@ -136,7 +136,7 @@ Felicity sat down and someone sat down next to her, I force myself to walk back 
 
 Someone puts a Hallal Snack Pack on the table between us all and fans out a bunch of wooden forks.
 
-Was I not here with Grace the whole time? Who was I competing with? That's Grace!
+Was I not here with Grace the whole time? Who was I competing with? That's Grace! Isn't it?
 
 "Are you studying computer science too, Felicity?" Does she not..? Know? Wait...do just Aaron and I know the name Grace? Do I tell Felicity? 
 
@@ -144,7 +144,7 @@ Was I not here with Grace the whole time? Who was I competing with? That's Grace
 
 If I tell Felicity that Grace is the name for when...
 
-Wait...what am I calling Gavin that for? It was for teasing and being dorks, right? Gavin isn't trans like I am. Have I just been projecting this whole time? Was I that desperate for a trans friend I could experience exploring gender with that I forced a friend to crossdress?
+Wait...what am I calling Gavin that for? It was for teasing and being dorks, right? Gavin isn't trans like I am. Have I just been projecting this whole time? Was I that desperate for a trans friend I could experience exploring gender together with that I forced a friend to crossdress?
 
 The egg prime directive is bullshit. If Gavin was secretly trans this week would have given them more than enough chances to come to terms and announce a new gender. But they've been acting like they wanted to do anything but this whole time. You want this to be over, don't you Gavin?
 

@@ -6,7 +6,7 @@ Yeah, I deserved that.
 
 Half an hour of trying to be a wingman for Felicity, and Amity just kept giving me the saddest glances. Is she actually gay? Was this whole thing just a extended rouse to try and woo me? Did they think it would be easier to forcefem a cis guy if they forcefemmed themself too? Does that make them gay?
 
-Honestly, chat, I don't think the word gay is robust enough in its definition to cover the nonsense we've gotten ourselves into.
+Honestly, chat, I don't think the word gay is robust enough in its definition to cover the nonsense we've gotten ourselves into. 
 
 What do you think, Amity?
 
@@ -43,3 +43,33 @@ I don't know what I look like without the pads. But if she could get results tha
 "Ahh, welcome back, miss." She thinks she got me with the hard sell (and the kind of sexual harassment), and she's right. But I don't have time for banter.
 
 "I was wondering about the item we were discussing earlier."
+
+"Do you want to get fitted for a bra also? They work best with our budding and support line of bras." The hard sell won't work here lady, I'm utterly pressed for time and I know what I've got: nothing worth looking at.
+
+Wait...does she think I'm trans? I'm clearly not a spring chicken. And anyone padding as hard as I was clearly has nothing to show for their puberty.
+
+"Actually, looking at them behind you, I don't think I can afford that."
+
+"Well before you go, would you like to pay for your friend from earlier?" For my friend? Am I paying her for coping a feel? I didn't know that was a service they charged for. "According to our notes they had a 18A from the boudoir line. It's one hundred and forty nine dollars, but we've got a sale on, so they're down to seventy today."
+
+What?
+
+Gavin was wearing a bra that whole time?
+
+Why didn't he say something? Did he not know? Are bras that comfortable? Without the chunk of pads this one has been a lot nicer, now that I think about it.
+
+"Yes...that was the other reason I came back." All I'm doing today is lying, I should have gone into law or nursing if I knew I was this quick to lie.
+
+"Are you a member with us?"
+
+"Huh? No."
+
+"Would you like to join? With this purchase you'll be eligible for a twenty dollar discount on your next purchase."
+
+That implies I want to come back here. And I have to give them a name and such, or worse my ID.
+
+"We just need a mobile phone, everything else is optional, as this can be a discrete matter that you might not want getting out if there's a data breach."
+
+Hmm...do I want to come back here? Do I want a bra of my own next time? Is this just a sex thing? I know I don't need one.
+
+...yet.
