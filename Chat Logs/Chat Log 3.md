@@ -197,7 +197,7 @@ Can you do some makeup for me this weekend?
 11:20am
 
 Stephanie
-Sure, get some pics for me and I'll see if we can fit you in
+Sure, Dave. Get some reference pics for me and I'll see if we can fit you in
 
 11:24am
 You good to pay ten bucks and bring me a coffee?

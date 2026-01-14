@@ -6,7 +6,7 @@ Chat, I think we're really in it now.
 
 I've managed to get snookered on two fronts.
 
-"Come on, there's a sale on. Ladies love sales." Amity continues to explain with her…their choice of words why they need to take Feminism 102. If I was keeping track that would easily score in the top ten most sexist things she has said today. He! That HE has said today.
+"Come on, there's a sale on. Ladies love sales." Amity continues to explain over the music coming out of all the nearby shops with her…their choice of words why they need to take Feminism 102. If I was keeping track that would easily score in the top ten most sexist things she has said today. He! That HE has said today.
 
 I can't keep forgetting that this is just a dude dressed like a woman (very convincingly I might add) and not someone I can just relax and pretend to be a woman with too…wait no! Yes? I am pretending to be a woman. Right?
 
@@ -30,9 +30,9 @@ My phone buzzes in my hand, doubtless another text from Flik making terrible sug
 
 I stroll in, my cardigan billowing behind me as I walk, but much more distracting is the skirt of my dress. It feels like wading though very comfortable water, the constant caresses of my legs from the fabric are very enjoyable. Pool was so easy to play cause it's all standing still from the waist down. Why did I suggest what amounts to a walking date. This ISN'T a date, by the way. We're just two normal guys, wearing ladies clothes, and going for a walk. Not a date.
 
-Seconds pass; and either cause no one attacks me for being a guy dressed as a girl in a lingerie shop, or cause Amity got nervous standing out the front of said lingerie shop alone, and she swiftly follows me in.
+Seconds pass; and either since no one attacks me for being a guy dressed as a girl in a lingerie shop, or cause Amity got nervous standing out the front of said lingerie shop alone, she swiftly follows me in. The cacophony of music from the other shops dims and all that's left is the smooth jazz and dim lights and Amity's eager face.
 
-I have on a few occasions this week wondered if Amity is secretly (secretly to both herself and me) trans, just very aggressively closeted or something, cause I cannot fathom how we got from playing darts to standing gormlessly in a dimly lit shop that sells only transparent bras and panties. I would ask what kind of trans person could possibly exist that would want to experiment with gender like this? I'm here cause I'm in too deep. What's her excuse? David never seemed to lack confidence or be uncomfortable in his body, so why did he let me help birth Amity? And why do I think I like Amity a lot more than David?
+I have on a few occasions this week wondered if Amity is secretly (secretly to both herself and me) trans, just very aggressively closeted or something, cause I cannot fathom how we got from playing darts to standing gormlessly in a dimly lit shop that sells only transparent bras and panties. I would ask what kind of trans person could possibly exist that would want to experiment with gender like this? Cause I'm here cause I'm in too deep. And what's her excuse? David never seemed to lack confidence or be uncomfortable in his body, so why did he let me help birth Amity? And why do I think I like Amity a lot more than David?
 
 "Since we're in here…" Amity is incredibly close, I have to flex my whole body to not flinch away. Lady, we don't have to whisper or stand this close…DUDE! She's a dude! He! "…You might as well try a bra on."
 
@@ -40,7 +40,7 @@ I give her a look that tries to ask if she's serious and since it doesn't seem t
 
 "You're serious? Why would I do that?" I exert as much control over my own body as possible and resist looking down at Amity's chest. Is this just revenge for dressing him in a bra? He didn't have to wear it today, and yet those lumps don't lie…or they do, they are just four pads a side and nothing else. I'm only a little very curious what they would look like with those clothes and padding.
 
-"Well, one of us was forced by the honour of a friendly bet to wear a bra for a solid chunk of yesterday." Lady, did you forget you're wearing it today too? Man! She's a man. A very sexy one, that I can't look directly at least I become very distracted. I must have done something before last week to really upset David if this is where we've gotten to. "Seems only fair the other try one…let's say, try this one on in the change room." Amity hands me a bra with an insultingly small cup. Insulting but also in all likelihood: fairly accurate. Before ushering me over to the change room, like I have seen people's mom's do, shoving me inside and closing the curtain behind me.
+"Well, one of us was forced by the honour of a friendly bet to wear a bra for a solid chunk of yesterday." Lady, did you forget you're wearing it today too? Man! She's a man. A very sexy one that I can't look directly at, lest I become very distracted. I must have done something before last week to really upset David if this is where we've gotten to. "Seems only fair the other try one…let's say, try this one on in the change room." Amity hands me a bra with an insultingly small cup. Insulting but also in all likelihood: fairly accurate. Before ushering me over to the change room, like I have seen people's mom's do, shoving me inside and closing the curtain behind me.
 
 Okay.
 
@@ -48,11 +48,11 @@ Now what?
 
 Do I even want to try this thing on?
 
-Deep purple, no padding, uncomfortably transparent and way to expensive. I'm not sure I even want to put this on my body. Isn't there a rule for being a pervert in women's change rooms?
+Deep purple, no padding, uncomfortably transparent and way to expensive. I'm not sure I even want to put this on my body. Isn't there a rule against being a pervert in women's change rooms?
 
 "If you don't come back out and give me a peek of that bra strap under your clothes you're banned from Sunday dinners for the rest of the year." Okay, that settles it. David is just really mad at me. They didn't even ban Nick from dinners for being super racist that one time.
 
-I can't not have Sunday dinners, money I could turn down…but this? Those dinners are too much of my calorie budget for the week and I do not have the funds to swap it out for something calorie dense like fried chicken.
+I can't not have Sunday dinners. Money? Money I could turn down…but this? Those dinners are too much of my calorie budget for the week and I do not have the funds to swap it out for something calorie dense like fried chicken.
 
 Fine!
 
