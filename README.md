@@ -21,4 +21,4 @@ Progress:
 | 3       | B    | Written   | 1798       | 14125            | Ballin' 'Till You're Dunked On      |
 | 3       | C    | Written   | 1544       | 15669            | She Gets What She Deserves          |
 | 3       | D    | Written   | 923        | 16592            | That Way Madness Lies               |
-| 3       | Chat | Written   | 938        | 17530            |                                     |
+| 3       | Chat | Written   | 1234       |                  |                                     |

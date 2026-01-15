@@ -48,7 +48,7 @@ Bras can't all be that expensive…right?
 
 Okay, so no. I don't think David is a Machiavelli schemer.
 
-No one who knows what their doing looks as dead as that man does. They still look cute though.
+No one who knows what they're doing looks as dead as that man does. They still look cute though.
 
 Wait…does that make me gay? For liking how a guy looks? Does David count as a guy? Does…Amity count as a girl?
 
@@ -60,7 +60,7 @@ Wait…if I was a woman…would I be straight or gay for liking how Amity looks?
 
 I am so glad I am an expressionless husk some days. I almost shat myself just now, but it probably didn't show on my face at all.
 
-"Flik, who sneaks up on people like that? I'm gonna get you back for that and you'll regret having thought you could sneak up on me."
+"Flik, who sneaks up on people like that? I'm gonna get you back for that and you'll deeply regret having thought you could sneak up on me."
 
 "Ohh, feeling chatty today? Is that her over there? I really hope it is, cause I would feel kinda bad for perving on the wrong person. You don't have back to back dates today, right? Those are the clothes I picked out to match your suggestions, but people can share clothes." I was immediately overwhelmed by the idea of Amity dressed in the clothes I was currently wearing…she would look like she was wearing her boyfriend's clothes…he. He would. Wait…am I the boyfriend in that fantasy?
 
@@ -96,7 +96,7 @@ This is going to be fun.
 
 ### 2:32pm Saturday - Amity
 
-I can still feel her hand on my skin…when did I get this touch starved?
+I can still feel her hand on my skin…when did I get this touch starved? My bra feels weird, it's probably fitting me better now.
 
 Wait…where did Grace go?
 

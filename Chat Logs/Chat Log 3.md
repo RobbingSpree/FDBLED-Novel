@@ -198,7 +198,7 @@ Actually, can we lie and say we couldn't get the security tag off and I get to k
 
 Ground_Floor()
 20220417_16XXXX.jpg
-The label says it's a 16A, I don't know your sizes but that seems a bit small
+The label says it's a 18A, I don't know your sizes but that seems a bit small
 
 Fork_bomb.zip
 There's a girl you're friends with who's got a waist as snatched as yours?
@@ -208,7 +208,7 @@ There's a girl you're friends with who's got a waist as snatched as yours?
 You got her number? Don't middleman your way to a date when the people doing the work don't get any profits
 
 Ground_Floor()
-She's not a good person, I don't think I like them
+She's not a good person, I don't think I like her
 This is just one last favor before we part ways forever?
 
 Fork_bomb.zip
