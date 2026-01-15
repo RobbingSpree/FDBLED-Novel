@@ -123,8 +123,8 @@ Wait, why do you think Amity isn't gay?
 Does is count as gay if she likes girls?
 
 Flik
-Yeah, she's a girlthing, i'm a girlthing
-If two girlthings like eachother that's gay
+Yeah, she's a girlthing, I'm a girlthing
+If two girlthings like each other that's gay
 
 G-Money
 Chat, is it gay to be gay?
@@ -197,7 +197,7 @@ Actually, can we lie and say we couldn't get the security tag off and I get to k
 4:50pm
 
 Ground_Floor()
-20220417_16XXXX.jpg
+20220417_164931.jpg
 The label says it's a 18A, I don't know your sizes but that seems a bit small
 
 Fork_bomb.zip
