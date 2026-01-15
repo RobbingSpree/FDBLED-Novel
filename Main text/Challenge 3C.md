@@ -2,13 +2,13 @@
 
 ### 2:23pm Saturday - Gavin
 
-I don't know what happened out there. But Amity looks haggard now.
+I don't know what happened...but Amity looks haggard now.
 
 She lead me to the food court and almost collapsed into a chair…she didn't let go of my hand the entire time, so I sat opposite her and gently tugged my hand free while she was lost in thoughts.
 
-And we've just been sitting here in silence since.
+And we've just been sitting here in silence since. Silence except for the cacophony of all the people milling about and chatting and buying things and eating as loudly as possible.
 
-I think one of the salespeople approached Amity while I was in the change room, but I don't know what happened. Once my heart calmed down after it became clear they weren't talking to me I kinda blacked out for a little bit.
+I think one of the salespeople approached Amity while I was in the change room, but I don't know what happened. Once my heart calmed down when it became clear they weren't talking to me I kinda blacked out for a little bit.
 
 I did try on the bra though…
 

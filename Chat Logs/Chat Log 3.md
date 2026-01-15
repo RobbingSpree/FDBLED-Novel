@@ -1,8 +1,3 @@
-Plans:
-Felicity asking questions with no answers of Gavin
-then Flik asking if they thought Amity was gay when they said she should meet 
-Flik says Amity must be straight cause she was giving gavin eyes the whole time and might have a crush on him
-
 Saturday April 17th 1:06pm
 
 Flik
@@ -152,6 +147,86 @@ Also don't answer that, I regret asking (⁠@⁠_⁠@⁠)
 
 G-Money
 You know not saying things is free
+
+***
+Saturday 17th April 3:16pm
+
+Amity
+Write up another IOU for $70
+
+***
+Saturday 17th April 4:28pm
+
+Ground_Floor()
+What would you say if I told a friend I knew how to take a security tag off a stolen thing but when I tried it didn't come off?
+
+4:30pm
+
+Fork_bomb.zip
+That you assumed it was magnets.
+Send me a pic of the widget
+
+Ground_Floor()
+20220417_163149.jpg
+
+4:32pm
+Fork_bomb.zip
+Come over tomorrow, I have a 3D printed jig we can use
+And as thanks for getting me marked present last week we can detonate the pack afterwards if it's one of the dye pack ones
+
+Ground_Floor()
+You know how to cheer a human creature up
+
+4:47pm
+
+Fork_bomb.zip
+Also, who steals a bra?
+Took me a sec to work out what that even was.
+
+Ground_Floor()
+I saw the price and agreed with them, $150 for underwear is too much
+
+Fork_bomb.zip
+You must only buy the cheap stuff.
+I bet that thing is hella comphy
+
+4:49pm
+
+Actually, can we lie and say we couldn't get the security tag off and I get to keep it?
+
+4:50pm
+
+Ground_Floor()
+20220417_16XXXX.jpg
+The label says it's a 16A, I don't know your sizes but that seems a bit small
+
+Fork_bomb.zip
+There's a girl you're friends with who's got a waist as snatched as yours?
+
+4:53pm
+
+You got her number? Don't middleman your way to a date when the people doing the work don't get any profits
+
+Ground_Floor()
+She's not a good person, I don't think I like them
+This is just one last favor before we part ways forever?
+
+Fork_bomb.zip
+Sounds dramatic? She transferring to UoW?
+
+Ground_Floor()
+Sometimes I think she never even existed
+
+5:58pm
+
+Fork_bomb.zip
+Poetic...but also vague-blogging on main. I ain't gonna touch that
+
+***
+
+Sunday 18th April 8:13pm
+Amity
+Don't think you can get out of this just by not writing an IOU
 
 ***
 
