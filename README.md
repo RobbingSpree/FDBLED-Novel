@@ -22,3 +22,5 @@ Progress:
 | 3       | C    | Written   | 1544       | 15669            | She Gets What She Deserves          |
 | 3       | D    | Written   | 923        | 16592            | That Way Madness Lies               |
 | 3       | Chat | Written   | 1234       |                  |                                     |
+| 4       | A    | Planning  |            |                  | Not as fun without her              |
+|         |      |           |            |                  |                                     |

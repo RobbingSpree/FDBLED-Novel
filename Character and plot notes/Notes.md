@@ -1,7 +1,4 @@
-Characters:
-
-
-
+Side Characters:
 
 Aaron, 18, Art Major
 
@@ -10,6 +7,8 @@ Built like a brick shithouse, soft and cuddly, but can't pick up the social cues
 Felicity, 20, Art Major in Photography
 
 A downstairs neighbour to Gavin, had her sights on Gavin as a potential egg but when Gav came to her with what sounded like another egg they could both jointly forcefem she was on board
+
+
 
 Challenges:
 
@@ -74,3 +73,13 @@ Amity tries to press their advantage and gets the shopkeeps attention on them
 Shopkeep instantly notices the heavily stacked sports bra and insists they take off the shirt and go into a change room
 
 Grace comes back out (forgetting she's wearing the bra)
+
+Chapter 4:
+Amity has gone to the party, pretending to have been accompanied by herself (and thus lost her in so she can ask if people have seen David and use that to start conversations)
+We join the party already in progress
+Amity has taken the fake name of Amy just in case word of the new girl gets back to Gavin
+We join her as Amity is being very aggressively hit on by some chud
+Amity was a little curious if she might be bi after the last two weeks with Gavin
+
+Gavin at this point knows he's going to end up homeless in a week or two so that's what he's chatting to Aaron and Felicity about, he does say that if things keep going this bad he might have to leave uni for the year work to save up for next year and try again then.
+This is a way for Gavin as a guy to vanish and no one to question his absence
