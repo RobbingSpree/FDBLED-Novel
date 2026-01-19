@@ -198,7 +198,7 @@ Actually, can we lie and say we couldn't get the security tag off and I get to k
 
 Ground_Floor()
 20220417_164931.jpg
-The label says it's a 18A, I don't know your sizes but that seems a bit small
+The label says it's a 14A, I don't know your sizes but that seems a bit small
 
 Fork_bomb.zip
 There's a girl you're friends with who's got a waist as snatched as yours?
