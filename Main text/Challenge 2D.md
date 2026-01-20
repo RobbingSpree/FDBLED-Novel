@@ -68,7 +68,7 @@ No!
 
 A heavy silence. Somehow, in this busy street, a silence hangs between us. I can't talk, cause I'm still trying to work out why that guy called me a lady and not a freak or something more accurate.
 
-"Hey, come over here." Grace beckons me from a few metres away and I drag myself over. "Look at her."
+"Hey, come over here." Grace beckons me from a few meters away and I drag myself over. "Look at her."
 
 Grace is pointing to a pair of women inside the shop we're now in front of who are looking our way. One is dressed just like she is, and the one next to her looks like a grown up skater chick. Grace is pointing to the skater chick, the same wry smile I keep seeing on her face like she knows something I don't.
 

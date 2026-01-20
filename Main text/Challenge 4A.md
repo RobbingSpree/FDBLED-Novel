@@ -27,4 +27,38 @@ That feels wrong somehow.
 
 "No, I'm going to move in with my sister. She's not close enough that I can do classes, but I can do all my paperwork stuff in person rather than over the phone or something."
 
-""
+"So you're just giving up and going home?"
+
+"Yeah, I don't have and extra two hundred dollars and I'm pretty sure my job is secretly trying to fire me, hence why they didn't pay me this week, so even if I asked for a loan from friends when next week comes around I wouldn't be able to afford rent either. I have no idea how the rest of you manage to afford to do this, I'm working myself to death and still can't afford it."
+
+"One fifty a week isn't that bad-"
+
+"One fifty? I'm paying three hundred. We're in the same building Flick, how are you paying so much less? I've seen your apartment, it's the mirror image of mine."
+
+"Ohh yeah that sounds like discrimination." Thanks Aaron, I hadn't noticed I was being unfairly charged, what a surprise. "Don't give me that look Gav, maybe it's not cause you're black." 
+
+Does Aaron know? Did he actually know it was me a fortnight ago? Or did he work it out after? Or does he think I'm being discriminated for being tall? Or not having parents in my life? Fuck it's so hard to work out what a stupid person is thinking, anything is possible.
+
+If this is the last university party I get to go to I'm not going to spend it moping with the least supportive pity party.
+
+"I'm gonna go dance."
+
+"You can dance? I always took you as someone who couldn't be bothered to exist let alone move." I wonder if Felicity even realizes she's saying something rude, or if she just opens her mouth and thoughts fall out. No point dignifying that with a response.
+
+The room isn't heaving, but it's still quite full. A few steps away from Aaron and Flick and I can barely hear them toasting my future endeavors. The music has all been R&B so far, all heavy bass lines, the kind of stuff that I get strong urges (that I resist) to dance to. As I keep walking, seeing all the faces of people oblivious to me in their own worlds, the current song ends. The hubbub of voices dominates my senses, without the pulsing beat I even feel a little unsteady on my feet.
+
+No.
+
+It can't be.
+
+Jazz.
+
+Who put jazz on the playlist.
+
+I don't want to think about her.
+
+Him.
+
+I don't want to think about...
+
+"Amity?"

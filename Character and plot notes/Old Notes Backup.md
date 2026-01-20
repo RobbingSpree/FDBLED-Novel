@@ -1,4 +1,44 @@
-Side Characters:
+Characters:
+
+David/Amity, 19, bio-chem student
+
+The fool who first springs the idea when bored with their friend Gavin
+
+Short, stocky, has been teased for being unmanly for being short and had a friend get bullied to a failed suicide attempt for expressing a desire to be trans in high school. 19, in second year of uni. Short hair (short on sides, longer on top) (that they've kept short with the intention of buying and wearing wigs but hasn't had the confidence yet due to dysphoria), well built arms from part time laborer job, same with their thighs. Reasonable hand eye coordination, poor memory for names remembers nicknames they give people easier. Considers themselves a good host above all else
+
+Nervous and cautious when a guy, confident and generous when a girl
+
+Skin tone: tanned, no freckles
+
+Hair texture/colour:
+
+Voice: casual and slang when thinking
+
+Fashion: suits gyaru and skater chick fashion
+
+First outfit: short, tight jeans. Loose grey tartan button up shirt with no buttons. Black crop top. Sports bra jammed full of pads. Black tights.
+
+How treats the other (and wants to be treated in turn): acts like Grace and Gavin are different people. Feels their own history and position in their friend group casts a deep shadow that they can't escape even if they did get received well if they came out.
+
+Reason not out as trans: wants to call themselves a woman and has been looking for all sorts of signs that will let them say they have crossed that barrier and become a woman. But they keep seeing it as a temporary incursion that they fall back from, essentially having a fem version of themselves and a bloke version. Kinda bi gender, very much trying to twist bioessentialist traits to support their ego.
+
+Gavin/Grace, 19, comp sci student
+
+A lanky human who feels ill at ease with their body and wishes someone would force fem them as they don't have the courage nor the confidence that they would look any good. When David challenges them to the first contest is far too nervous to hit the target in their panic of being found out by a friend.
+
+Tall and thin due to genetics and terrible eating habits, never eats well and their anxiety constantly kills their appetite. They did dance for several years as a child but was bullied out of it due to toxic masculinity defining everything slightly effeminate, but they've been generally coordinated since then and played basketball as a teen for a few years before the uniforms became a bit too dysphoric. They have a quiet and higher pitched voice and might actually be intersex and don't speak much due to not feeling safe to do so.
+
+Cat coded and relaxed when a guy, higher energy and michevious when a girl, very depressed and low energy a lot of the time, jumps to self harm when stressed
+
+Voice: poetic and casual, michevious when presenting femme
+
+Fashion: suits elegant long skirts and long cardigans
+
+First outfit: loose A-line dress. Calf length cardigan
+
+How treats the other (and wants to be treated in turn): cool and flexible and mysterious, each moment and action redefines them. Wants others to be quick to redefine them easily and without much comment.
+
+Reason not out as trans: sees themselves as a fake woman. With the addition of their disguise (while convincing) it doesn't change who they are underneath. Has very intense body dismophia, struggles to bathe due to needing to get naked. They feel they are fooling everyone else and themselves when they crossdress. Bought into the terf idea that gender isn't something that can be changed and sees their cross-dressing and fantasies as calming a desire for living a different, easier, life.
 
 Aaron, 18, Art Major
 
@@ -7,11 +47,6 @@ Built like a brick shithouse, soft and cuddly, but can't pick up the social cues
 Felicity, 20, Art Major in Photography
 
 A downstairs neighbour to Gavin, had her sights on Gavin as a potential egg but when Gav came to her with what sounded like another egg they could both jointly forcefem she was on board
-
-Fork Bomb, 18, Comp Sci
-
-Knows Gavin in person, but doesn't turn up to lectures and some tutorials so Gavin gets them marked as present into hacking and 3D printing and 
-
 
 Challenges:
 
@@ -76,13 +111,3 @@ Amity tries to press their advantage and gets the shopkeeps attention on them
 Shopkeep instantly notices the heavily stacked sports bra and insists they take off the shirt and go into a change room
 
 Grace comes back out (forgetting she's wearing the bra)
-
-Chapter 4:
-Amity has gone to the party, pretending to have been accompanied by herself (and thus lost her in so she can ask if people have seen David and use that to start conversations)
-We join the party already in progress
-Amity has taken the fake name of Amy just in case word of the new girl gets back to Gavin
-We join her as Amity is being very aggressively hit on by some chud
-Amity was a little curious if she might be bi after the last two weeks with Gavin
-
-Gavin at this point knows he's going to end up homeless in a week or two so that's what he's chatting to Aaron and Felicity about, he does say that if things keep going this bad he might have to leave uni for the year work to save up for next year and try again then.
-This is a way for Gavin as a guy to vanish and no one to question his absence

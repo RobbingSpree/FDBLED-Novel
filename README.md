@@ -17,10 +17,10 @@ Progress:
 | 2       | C    | Published | 2053       | 9520             | Learning and Growing                |
 | 2       | D    | Published | 661        | 10181            | A Girl By Any Other Name is Herself |
 | 2       | Chat | Published | 881        | 11062            |                                     |
-| 3       | A    | Written   | 1265       | 12327            | Paddleless and Up It                |
-| 3       | B    | Written   | 1798       | 14125            | Ballin' 'Till You're Dunked On      |
-| 3       | C    | Written   | 1544       | 15669            | She Gets What She Deserves          |
-| 3       | D    | Written   | 923        | 16592            | That Way Madness Lies               |
-| 3       | Chat | Written   | 1234       |                  |                                     |
-| 4       | A    | Planning  |            |                  | Not as fun without her              |
-|         |      |           |            |                  |                                     |
+| 3       | A    | Published | 1265       | 12327            | Paddleless and Up It                |
+| 3       | B    | Published | 1798       | 14125            | Ballin' 'Till You're Dunked On      |
+| 3       | C    | Published | 1544       | 15669            | She Gets What She Deserves          |
+| 3       | D    | Published | 923        | 16592            | That Way Madness Lies               |
+| 3       | Chat | Published | 1234       |                  |                                     |
+| 4       | A    | Written   | 967        |                  | Not as fun without her              |
+| 4       | B    | Planning  |            |                  |                                     |

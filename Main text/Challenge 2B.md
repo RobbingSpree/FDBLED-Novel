@@ -1,4 +1,4 @@
-# Like ships in the night
+# Like Ships in the Night
 
 ### Friday 6:03pm - David
 
