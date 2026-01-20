@@ -25,3 +25,6 @@ acts like Grace and Gavin are different people. Feels their own history and posi
 
 #### Reason not out as trans: 
 wants to call themselves a woman and has been looking for all sorts of signs that will let them say they have crossed that barrier and become a woman. But they keep seeing it as a temporary incursion that they fall back from, essentially having a fem version of themselves and a bloke version. Kinda bi gender, very much trying to twist bioessentialist traits to support their ego. Is very afraid that the TERFs are right and they're a dangerously aggressive and physically violent creature and just a man sneaking into women's spaces.
+
+Evil opposite version: 
+Enmity: a state of war or opposition 

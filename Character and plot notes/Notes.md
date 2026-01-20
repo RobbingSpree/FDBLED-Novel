@@ -86,3 +86,18 @@ Amity was a little curious if she might be bi after the last two weeks with Gavi
 
 Gavin at this point knows he's going to end up homeless in a week or two so that's what he's chatting to Aaron and Felicity about, he does say that if things keep going this bad he might have to leave uni for the year work to save up for next year and try again then.
 This is a way for Gavin as a guy to vanish and no one to question his absence
+Gavin gets a bit emotionally overwhelmed with the pity party and leaves to go dance
+Sees Amity and that she's being accosted
+
+Amity POV
+Hears Gavin call her name POV name tag reflects this
+Both excited she might be rescued and mad that it was Gavin of all people to come to save her
+She is angry at herself for thinking about putting herself in harm's way to escape
+Starts to get a bit worked up by Gavin 
+Gets angry that Gavin seems so cool and collected
+Wants Gavin to feel some of the turmoir she's feeling
+Gavin makes the bet he can get more of Amity's affection in 10 seconds than chud has gotten in 10 minutes 
+Gav asks for a kiss quietly to Amity and before he can pull back Amity decides to give Gavin a full on kiss
+
+Gavin POV
+
