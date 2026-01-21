@@ -3,7 +3,7 @@
 
 I was so fucking wrong! On so many levels! 
 
-This just isn't as fun when I'm dressed like a girl by my self. I don't know how but Gavin made this fun, especially when we were trying to make the other regret existing. But I don't have the same butterflies in my stomach feelings that I got with him. I don't to be seen, or spoken too, or have people be in my space. Riddle me that, bitch.
+This just isn't as fun when I'm dressed like a girl by my self. I don't know how but Gavin made this fun, especially when we were trying to make the other regret existing. But I don't have the same butterflies in my stomach feelings that I got with him. I don't want to be seen, or spoken too, or have people be in my space. Why did I think this would be a good idea after last week? Riddle me that, bitch.
 
 Second of all the fuckery I'm living through: I'm not gay. Or am I? Whatever! I don't like dudes. This chud has been blocking me in and pinning me to a wall for the last ten minutes and doing nothing but talk about himself while he tries to flirt with me. Does he know I'm trans? Does he think I'm cis? Doesn't matter either way, he's a wanker. Grace could make it seem elegant and cool, like I could leave if I wanted to, that it was her entrancing eyes and...it doesn't matter why! This guy is doing it so wrong I'm never going to give another guy the time of day after this. 
 
