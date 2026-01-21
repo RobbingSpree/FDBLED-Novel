@@ -9,6 +9,12 @@ Good.
 Her lips are very soft. I can feel her panicking while I hold her in place. But she's not not kissing back. My Grace is in there and she wants me too.
 
 ***
+
+### 7:15pm Friday - Gavin
+
+(To write later, need a bit where Gavin is shellshocked and a bit upset that Amity took their first kiss, but also starts trying to explain it away and dismiss it as not that serious. All the while Amity is dragging him out of the party and over to the bus stop to take him to her house.)
+
+***
 ### 8:40pm Friday - ~~Amity~~ ~~Amy~~ ~~Amity~~ Enmity
 
 "Stop being a baby and tell me what you mean."
@@ -23,7 +29,7 @@ Her lips are very soft. I can feel her panicking while I hold her in place. But 
 
 Don't go.
 
-"Well...my landlord has been raising my rent and I've fallen behind, and I get evicted tomorrow. Sooooooo...I'm going to move home."
+"Well...my landlord has been raising my rent and I've fallen behind, and: surprise! I get evicted tomorrow. Sooooooo...I'm going to move home."
 
 Don't take her from me.
 
