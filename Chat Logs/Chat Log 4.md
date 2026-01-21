@@ -20,7 +20,7 @@ You said you'd never dated anyone. I don't think you've got the experience to sa
 There'll be other chances, next year once you can afford to come back to uni, but there will be other chances. And you get the chance to improve.
 
 G-Money
-She didn't hate it.
+She didn't hate it. It was just a lot all at once.
 
 Flik
 Did she say that when you asked why she was crying.
@@ -34,7 +34,12 @@ Felicity
 Did you see who Gavin ended up dancing with?
 
 Aaron
-I saw them seemingly being pinned to the wall by Dylan
+I think I saw them seemingly being pinned to the wall by Dylan
+I was gonna intervene but they left before I got close
 
 Felicity
 Can't say I agree with their tastes
+But now I wanna know if I misunderstood their text message
+
+***
+
