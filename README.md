@@ -23,4 +23,7 @@ Progress:
 | 3       | D    | Published | 923        | 16592            | That Way Madness Lies               |
 | 3       | Chat | Published | 1234       |                  |                                     |
 | 4       | A    | Written   | 967        |                  | Not as fun without her              |
-| 4       | B    | Planning  |            |                  |                                     |
+| 4       | B    | Written   | 1039       |                  | In the Muck                         |
+| 4       | C    | Planning  |            |                  |                                     |
+| 4       | D    | Dunno     |            |                  |                                     |
+| 4       | Chat |           |            |                  |                                     |
