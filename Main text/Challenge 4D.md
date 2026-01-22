@@ -20,15 +20,33 @@ Why did she kiss me at all?
 
 Why did she drag me out of there right after?
 
-"Amity! Why?" Why is my brain just mush now. Why am I thinking about kissing her again? I don't want to kiss anyone ever again. That wasn't good or nice and I hated it. Why do people think kissing is desirable. 
+"Amity! Why?" Why is my brain just mush now. Why am I thinking about kissing her again? I don't want to kiss anyone ever again. That wasn't good or nice and I hated it. Why do people think kissing is desirable. Why is she still holding my hand?
 
 "It doesn't matter." I don't believe you.
 
 "Then we can stop walking and let me rest?" I think I stopped breathing when she kissed me and I've been out of breath since.
 
-"Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express that doesn't stop near Blake's house." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I don't want anyone to know I was crying.
+"Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express and that doesn't stop near Blake's house so we won't see anyone who'll know us." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I kinda want to pass out and not exist for a week. I don't want anyone to know I was crying just now.
 
-"I never got to meet Blake, Aaron said he would introduce us."
+How can I ask her why she kissed me like that and not just one on the cheek?
+
+"Kiss?" Good job brain, full points. Now go take a nap, you're banned from talking for the rest of night.
+
+Amity stopped in her tracks.
+
+She hasn't looked at me since she started dragging me. She's still looking forward.
+
+"Do you want another one? I didn't think you liked physical affection..." I think she said my name at the end there, if she looked at me when she was talking I could hear her. 
+
+Brain get back here, I need to put my foot in my mouth again. Amity is teasing me, I have to win. If she thinks a kiss is nothing special then I'll show her I'm nothing special too...I'm sure there's a way to say that such that I sound sane.
+
+"Anything you can dish out I can take." I really hope she doesn't call my bluff. I don't know if my legs will hold out if she does actually try and kiss me again, I don't know what kind of man she'd think I am if she knows my knees go weak at the thought of a kiss. 
+
+Actually...what do I have to lose? If I'm leaving tomorrow, I can go all out and try to pressure her back. It's not a game of chicken if I know the other person has more of a stake to lose than me.
+
+Just gotta man up...become resolute. And nothing Amity says or does can phase me.
+
+""
 
 (not done)
 
@@ -37,7 +55,7 @@ Why did she drag me out of there right after?
 
 "Stop being a baby and tell me what you mean."
 
-"I was just saying it'll be a weird way to part ways after tonight."
+"I was just saying it'll be a weird way to part ways after tonight." That's not an answer, Gavin. That's just the same words in a different order.
 
 "Yeah, but I'll see you on Sunday and it'll keep being weird then too." Gavin, why do you look like you are the one who did something wrong?
 
