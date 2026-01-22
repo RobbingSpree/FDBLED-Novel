@@ -43,3 +43,22 @@ But now I wanna know if I misunderstood their text message
 
 ***
 
+Saturday 8:04am
+Baby
+Hey Mom, how can I help a friend I think is trans from a distance?
+
+Mom_2rd
+How much of a distance? 
+What makes you think they're trans?
+
+Baby
+They're moving back with their family and I've seen them trying out being a girl with Gavin
+
+Mom_2rd
+Gavin? The one who lives with the man hating women? 
+
+Baby
+That has to be the worst way to describe them. But yeah.
+
+Mom_2rd
+Trans folk are often just looking for permission to exist so don't question them and just follow their lead and encourage them if the opportunity arises.

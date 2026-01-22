@@ -1,0 +1,1 @@
+Living together, both permanently wearing fem clothes and adopting fem names, still very much want to continue cause it's a great excuse and they want to make the other pay for being kinda a bitch about it

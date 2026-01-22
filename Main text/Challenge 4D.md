@@ -2,17 +2,33 @@
 
 ### 7:11pm Friday - ~~Amity~~ ~~Amy~~ Amity
 
-The chud left after only a few seconds of kiss. 
+Her lips are very soft. I can feel her panicking while I hold her in place. But she's not not kissing back. I know this is selfish, but the heart wants what the heart wants.
+
+The chud left after only a few seconds of watching us kiss. 
 
 Good.
-
-Her lips are very soft. I can feel her panicking while I hold her in place. But she's not not kissing back. My Grace is in there and she wants me too.
 
 ***
 
 ### 7:15pm Friday - Gavin
 
 (To write later, need a bit where Gavin is shellshocked and a bit upset that Amity took their first kiss, but also starts trying to explain it away and dismiss it as not that serious. All the while Amity is dragging him out of the party and over to the bus stop to take him to her house.)
+
+Why did she kiss me like that?
+
+Why did she kiss me at all?
+
+Why did she drag me out of there right after?
+
+"Amity! Why?" Why is my brain just mush now. Why am I thinking about kissing her again? I don't want to kiss anyone ever again. That wasn't good or nice and I hated it. Why do people think kissing is desirable. 
+
+"It doesn't matter." I don't believe you.
+
+"Then we can stop walking and let me rest?" I think I stopped breathing when she kissed me and I've been out of breath since.
+
+"Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express that doesn't stop near Blake's house." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I don't want anyone to know I was crying.
+
+"I never got to meet Blake, Aaron said he would introduce us."
 
 ***
 ### 8:40pm Friday - ~~Amity~~ ~~Amy~~ ~~Amity~~ Enmity

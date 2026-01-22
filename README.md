@@ -22,8 +22,8 @@ Progress:
 | 3       | C    | Published | 1544       | 15669            | She Gets What She Deserves                  |
 | 3       | D    | Published | 923        | 16592            | That Way Madness Lies                       |
 | 3       | Chat | Published | 1234       | 17826            |                                             |
-| 4       | A    | Written   | 967        | 18793            | Not as fun without her                      |
-| 4       | B    | Written   | 1040       | 19833            | In the Muck                                 |
-| 4       | C    | Written   | 1099       | 20932            | Because We Help Friends                     |
-| 4       | D    | Written   | 647        | 21579            | A Heart That Burns For You May Leave a Scar |
+| 4       | A    | Written   | 981        |                  | Not as fun without her                      |
+| 4       | B    | Written   | 1040       |                  | In the Muck                                 |
+| 4       | C    | Written   | 1227       |                  | Because We Help Friends                     |
+| 4       | D    | Written   | 647        | ~21000           | A Heart That Burns For You May Leave a Scar |
 | 4       | Chat | Planning  |            |                  |                                             |
