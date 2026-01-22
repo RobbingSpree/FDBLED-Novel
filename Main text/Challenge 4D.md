@@ -1,12 +1,14 @@
-# A heart that burns for you may leave a scar
+# My Heart Burns for You But I am Thus on Fire
 
 ### 7:11pm Friday - ~~Amity~~ ~~Amy~~ Amity
 
-Her lips are very soft. I can feel her panicking while I hold her in place. But she's not not kissing back. I know this is selfish, but the heart wants what the heart wants.
+Her lips are very soft. I can feel her panicking while I hold her in place. But she's not NOT kissing back. So I think I win. I know this is selfish, but the heart wants what the heart wants. And my heart wants her.
 
 That chud left after only a few seconds of watching us kiss. 
 
 Good.
+
+This is my moment. Even if this is the only one I take.
 
 ***
 
@@ -18,7 +20,7 @@ Why did she kiss me at all?
 
 Why did she drag me out of there right after?
 
-"Amity! Why?" Why is my brain just mush now. Why am I thinking about kissing her again? I don't want to kiss anyone ever again. That wasn't good or nice and I hated it. Why do people think kissing is desirable. Why is she still holding my hand?
+"Amity! Why?" Why is my brain just mush now. Why am I thinking about kissing her again? I don't want to kiss anyone ever again. That wasn't good or nice and I hated it. Why do people think kissing is desirable? Why is she still holding my hand?
 
 "It doesn't matter." I don't believe you. Was that another part of the bet you lost that put you in makeup tonight? That you had to kiss a guy? 
 
@@ -26,19 +28,19 @@ Why did she drag me out of there right after?
 
 "Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express and that doesn't stop near Blake's house so we won't see anyone who'll know us." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I kinda want to pass out and not exist for a week. I don't want anyone to know I was crying just now.
 
-How can I ask her why she kissed me like that and not just one on the cheek?
+How can I ask her why she kissed me like that and not just one on the cheek? What's a concise question that'll sum that all up?
 
-"Kiss?" Good job brain, full points. That was exactly what I wanted to say. Now go take a nap, you're banned from talking for the rest of night.
+"...Kiss?" Good job brain, full points. That was exactly what I wanted to say. Now go take a nap, you're banned from talking for the rest of night.
 
 Amity stopped in her tracks.
 
-She hasn't looked at me since she started dragging me. She's still looking forward.
+She hasn't looked at me since she started dragging me. And she still hasn't, she's still looking forward.
 
-"Do you want another one? I didn't think you liked physical affection..." I think she said my name at the end there, if she looked at me when she was talking I could hear her. She must have hated it as much as I did if she still can't look at me.
+"Do you want another one? Before wasn't anything special. I didn't think you liked physical affection..." I think she said my name at the end there, if she looked at me when she was talking I could probably hear her. She must have hated it as much as I did if she still can't look at me.
 
-Brain get back here, I need to put my foot in my mouth again. Amity is clearly teasing me, so clearly I have to win. If this is a game, I can win it. If she thinks a kiss is nothing special then I'll show her I'm nothing special too...yeah, let's stick with that. I'm nothing special.
+Brain get back here, I need to put my foot in my mouth again. Amity is clearly teasing me, so clearly: I have to win. If this is a game, I can win it. If she thinks a kiss is nothing special then I'll show her I'm nothing special too...yeah, let's stick with that. I'm nothing special.
 
-"Anything you can dish out I can take." I really hope she doesn't call my bluff. I don't know if my legs will hold out if she does actually try and kiss me again, I don't know what kind of man she'd think I am if she knows my knees go weak at the thought of a kiss. 
+"Anything you can dish out I can take." I really hope she doesn't call my bluff. I don't know if my legs will hold out if she does actually try and kiss me again, I don't know what kind of man she'd think I am if she knows my knees go weak at the thought of another kiss. 
 
 Actually...what do I have to lose? If I'm leaving tomorrow, I can go all out and try to pressure her back. It's not a game of chicken if I know the other person has more of a stake to lose than me.
 
@@ -46,7 +48,7 @@ Just gotta man...become resolute. And nothing Amity says or does can phase me.
 
 "You don't think it's gay to kiss me?"
 
-"Honestly, Amity? ...No." I don't think sexuality can explain anything of what we've been doing for the last few weeks. I think I like girls and you look like one (very jealous how much you look like one but pretty sure that's unrelated), don't think there's much else to consider.
+"Honestly, Amity? ...No?" I don't think sexuality can explain anything of what we've been doing for the last few weeks. I think I like girls and you look like one (very jealous how much you look like one by the way, but pretty sure that's unrelated), don't think there's much else to consider.
 
 "Even if I'm a guy?" Are you though? Are you? Am I? What even is a guy? I don't register on Felicity's gaydar and I think the staff in the bra shop we're ignoring me, so I'm clearly not a girl. But what guy accepts more than one bet like we've been doing? Do I want you to be a girl? Kinda. But I think that's just cause I want a friend who understands me, not cause I think you'd make a good girl, though you'd make a good girl.
 
@@ -75,7 +77,7 @@ Why are you being so evil right now? What did any of this mean?
 
 "Yeah, that's why you're at every Sunday dinner. You're reliable." Can you not afford uni any more?
 
-Don't go.
+Don't...don't go.
 
 "Well...my landlord has been raising my rent and I've fallen behind, and: surprise! I get evicted tomorrow. Sooooooo...I'm going to move home."
 
@@ -97,13 +99,17 @@ Stay here.
 
 "I don't care what the conditions are. I was this close to either being murdered by the police or moving in with my sister. I'll take any conditions over that." Don't say ANY. I'll take advantage of your naivete. Don't let me do this. 
 
-"Gentlemen's agreement then? Free board for some small changes." Don't agree. Don't let me trap you. I already feel terrible for that kiss. And you asked for a second. Do you know what it took to not give in and give you another kiss? All I could see was her. Once I got close enough. Don't let me see her again, I don't know what I'd do next.
+"Gentlemen's agreement then? Free board for some small changes." Don't agree. Don't let me trap you. I already feel terrible for that kiss. And you asked for a second one. Do you know what it took to not give in and give you another kiss? All I could see was her. Once I got close enough. Don't let me see her again, I don't know what I'd do next.
 
-"Done." I'm a terrible person. "So what's the conditions? I'm happy to earn my place. Or wear a shirt that says 'Bludger' on it or something." 
+"Done." I'm sorry, Gavin.
 
-Maybe if I come on too strong I'll scare them off. Just tear the breaks off and barrel full steam ahead.
+I'm a terrible person. 
 
-"Well...I'd be inviting Grace to stay, not Gavin." That's the same expression I saw when I first thought I was being clever. "The other people I live with don't like sharing their space with guys. I got a pass cause they were desperate and I proved myself. But they don't know you. They're too busy when the Sunday dinners are on, so they've not met Gavin and would probably veto you staying." 
+"So what's the conditions? I'm happy to earn my place. Or wear a shirt that says 'Bludger' on it or something." 
+
+Maybe if I come on too strong I'll scare them off. Just tear the breaks off and barrel full steam ahead with bare desires.
+
+"Well...I'd be inviting Grace to stay, not Gavin." That's the same expression I saw when I first thought I was being clever. "The other people I live with don't like sharing their space with guys. I got a pass cause they were desperate and I proved myself. But they don't know you. They're too busy when the Sunday dinners are on and most afternoons, so they've not met Gavin and would probably veto anyone but Grace from staying." 
 
 "So...I just have to dress like a girl at your place."
 
@@ -117,7 +123,6 @@ Maybe if I come on too strong I'll scare them off. Just tear the breaks off and 
 
 "We'll have to buy you more girl clothes. One pair won't be enough." I'm going to have to take more shifts to afford all I want to buy her.
 
-"I'm gonna have to write even more IOUs" 
+"I'm gonna have to write even more IOUs aren't I?" 
 
 You shouldn't owe me for betraying your trust.
-

@@ -233,7 +233,7 @@ Don't think you can get out of this just by not writing an IOU
 Wednesday 21st April 11:14am
 
 As Bricks
-Yo, my friend is hosting a rager this weekend. He finally got enough credits to pass this semester, unless he gets hit with a suspension, he can't not graduate.
+Yo, my friend, Blake, is hosting a rager this weekend. He finally got enough credits to pass this semester, unless he gets hit with a suspension, he can't not graduate.
 So take that as a warning.
 It's a party, but it's a civil one.
 No serious drugs
@@ -247,7 +247,7 @@ Sure, I have had a time of it recently and could do with a bass line so loud it 
 Wednesday 21st April 11:14am
 
 Aaron
-Yo, my friend is hosting a rager this weekend. He finally got enough credits to pass this semester, unless he gets hit with a suspension, he can't not graduate.
+Yo, my friend, Blake, is hosting a rager this weekend. He finally got enough credits to pass this semester, unless he gets hit with a suspension, he can't not graduate.
 It'll be your speed, chill vibes and heavy music.
 I'll even ask them to slip some jazz into the playlist.
 

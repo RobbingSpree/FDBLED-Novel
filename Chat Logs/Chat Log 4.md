@@ -11,6 +11,7 @@ You said you were going to dance? How did you end up making out with someone so 
 
 G-Money 
 The kiss wasn't that bad
+They said it was a just a casual thing
 
 Flik
 You said you'd never dated anyone. I don't think you've got the experience to say you weren't bad enough at it to make her cry
