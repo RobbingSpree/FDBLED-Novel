@@ -1,4 +1,4 @@
-# My Heart Burns for You But I am Thus on Fire
+# My Heart Burns for You But I am Notably on Fire
 
 ### 7:11pm Friday - ~~Amity~~ ~~Amy~~ Amity
 

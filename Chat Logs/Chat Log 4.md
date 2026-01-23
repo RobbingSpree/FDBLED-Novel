@@ -1,4 +1,4 @@
-Friday 8:52pm
+Friday 23rd April 8:52pm
 
 G-Money 
 Is it normal to cry after being kissed?
@@ -34,9 +34,12 @@ No one wants to hurt a guy's feelings cause you can be dangerous. Just let it go
 
 ***
 
-Friday 9:02pm
+Friday 23rd April 9:02pm
+
 Felicity
 Did you see who Gavin ended up dancing with?
+
+Friday 9:07pm
 
 Aaron
 I think I saw them seemingly being pinned to the wall by Dylan
@@ -48,7 +51,7 @@ But now I wanna know if I misunderstood their text message
 
 ***
 
-Saturday 8:04am
+Saturday 24th April 8:04am
 Baby
 Hey Mom, how can I help a friend I think is trans from a distance?
 
@@ -77,14 +80,14 @@ Works every time.
 8:46pm
 Baby
 I'll always try. 
-I love you.
+I love you mom
 
 Mom_2rd
 Love you too, Aaron
 
 ***
 
-Friday 9:01pm
+Friday 23rd April 9:01pm
 Daystar
 Hey, Marissa...I've got a favour to ask.
 
@@ -104,6 +107,8 @@ I feel like sometimes I do
 Marmar
 You do, but not this time
 
+9:05pm
+
 Daystar
 Regardless, my friend got evicted from her apartment cause the landlord kept raising rent and they need somewhere to crash. 
 
@@ -112,29 +117,42 @@ Yes
 
 Daystar
 Can they stay with us at least till the end of semester?
+
+9:06pm
+
 You didn't even let me finish
 
 Marmar
 I didn't realise it was an actual favour.
-I thought you were gonna ask if you could eat my pudding or something 
+I thought you were gonna ask if you could eat the grape pudding I've been hiding in the fridge or something 
 
 Daystar
 I know better than to eat your food
-Okay, gotta ask Jill too. 
-But thanks
+Okay, gotta ask Jill next. 
+thanks
 
 9:15pm 
 Marmar
 What kind of person is she? Is there anything I should know before I meet her?
 
-(Continue chat )
+9:21pm
+Daystar
+She's a bit of a mischief maker. But that might just be with me
+We've been in a little bit of a battle to the death for the last few weeks
+(The death battle is unrelated to her being homeless)
+
+Marmar
+I know how much of a waste of existence landlords are, you're preaching to the choir
 
 ***
 
-9:07pm
+Friday 23rd April 9:07pm
+
 Daywalker 
-Marmar already said yes, but I need to get your go ahead for a favour
+Mar already said yes, but I need to get your go ahead for a favour
 I have a friend who got evicted and needs a place to crash, can she stay with us at least until the end of semester?
+
+9:38pm
 
 Jillian-hands-on-buns
 Don't care
@@ -146,7 +164,7 @@ You'd be a godsend
 
 ***
 
-Saturday 9:13am
+Saturday 24th April 9:13am
 
 She_who_mar_wont_touch
 David looked really weird this morning 
@@ -157,10 +175,11 @@ He's really spacey in the morning
 
 She_who_mar_wont_touch
 He was really smiley and excited
-Like a maiden in love
+Like a maiden in love before a date
 
 She_who_Jelly_refuses_to_vivisect
 Guys are allowed to have crushes you know.
+Are you sure he wasn't planning what to cook tomorrow? He gets kind of intense about his big meals
 
 She_who_mar_wont_touch
 It's suspicious is all
