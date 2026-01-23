@@ -20,3 +20,12 @@ Blake, 19, Physics
 
 Hosts the party from Challenge 4
 
+Mom_2rd
+Aaron's trans mom, married to Aaron's non-trans mom (currently unnamed)
+
+Amity roommate 1 (Jillian), 19, Nursing
+No notes 
+
+
+Amity roommate 2 (Marissa), 18, Nursing
+Highly cafinated, 

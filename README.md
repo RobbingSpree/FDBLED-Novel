@@ -23,7 +23,8 @@ Progress:
 | 3       | D    | Published | 923        | 16592            | That Way Madness Lies                       |
 | 3       | Chat | Published | 1234       | 17826            |                                             |
 | 4       | A    | Written   | 981        |                  | Not as fun without her                      |
-| 4       | B    | Written   | 1040       |                  | In the Muck                                 |
-| 4       | C    | Written   | 1227       |                  | Because We Help Friends                     |
-| 4       | D    | Written   | 647        | ~21000           | A Heart That Burns For You May Leave a Scar |
+| 4       | B    | Written   | 1099       |                  | In the Muck                                 |
+| 4       | C    | Written   | 1227       |                  | Because We Help Our Friends                 |
+| 4       | D    | Written   | 1596       | ~21000           | A Heart That Burns For You May Leave a Scar |
 | 4       | Chat | Planning  |            |                  |                                             |
+| 5       | A    | Planning  |            |                  |                                             |

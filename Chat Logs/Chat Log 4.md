@@ -7,18 +7,22 @@ Is it normal to cry after being kissed?
 
 Flik
 Is that where you got to?
+You said tonight was going to be the last chance we'd get to see you and then you fucked off?
 You said you were going to dance? How did you end up making out with someone so poorly they cried.
 
 G-Money 
 The kiss wasn't that bad
-They said it was a just a casual thing
 
 Flik
 You said you'd never dated anyone. I don't think you've got the experience to say you weren't bad enough at it to make her cry
 
-9:03pm
+G-Money 
+They also said it wasn't something special 
 
-There'll be other chances, next year once you can afford to come back to uni, but there will be other chances. And you get the chance to improve.
+9:03pm
+Flik
+I think they lied. You just did it wrong. It happens.
+There'll be other chances, next year once you can afford to come back to uni, you can find another random and weirdly forward girl. And you'll get the chance to vindicate your efforts.
 
 G-Money
 She didn't hate it. It was just a lot all at once.
@@ -26,7 +30,7 @@ She didn't hate it. It was just a lot all at once.
 Flik
 Did she say that when you asked why she was crying.
 She was just trying to be nice.
-No one wants to hurt a guy's feelings cause you can be dangerous.
+No one wants to hurt a guy's feelings cause you can be dangerous. Just let it go.
 
 ***
 
@@ -48,10 +52,12 @@ Saturday 8:04am
 Baby
 Hey Mom, how can I help a friend I think is trans from a distance?
 
+8:37pm
 Mom_2rd
 How much of a distance? 
 What makes you think they're trans?
 
+8:38pm
 Baby
 They're moving back with their family and I've seen them trying out being a girl with Gavin
 
@@ -61,5 +67,100 @@ Gavin? The one who lives with the man hating women?
 Baby
 That has to be the worst way to describe them. But yeah.
 
+8:42pm
 Mom_2rd
 Trans folk are often just looking for permission to exist so don't question them and just follow their lead and encourage them if the opportunity arises.
+Your mom was one of my best supporters when I was threatening to come out of the closet.
+I'm proud you're trying to help, and remember, if you don't know what to say: pretend you forgot everything and give them a compliment.
+Works every time.
+
+8:46pm
+Baby
+I'll always try. 
+I love you.
+
+Mom_2rd
+Love you too, Aaron
+
+***
+
+Friday 9:01pm
+Daystar
+Hey, Marissa...I've got a favour to ask.
+
+Marmar
+Don't use my whole name, it sounds like I've done something wrong. 
+Shorten it to Mar at least 
+
+Daystaro
+Mar, I have a favour to ask
+
+Marmar
+You didn't have to ask twice
+
+Daystar
+I feel like sometimes I do
+
+Marmar
+You do, but not this time
+
+Daystar
+Regardless, my friend got evicted from her apartment cause the landlord kept raising rent and they need somewhere to crash. 
+
+Marmar
+Yes
+
+Daystar
+Can they stay with us at least till the end of semester?
+You didn't even let me finish
+
+Marmar
+I didn't realise it was an actual favour.
+I thought you were gonna ask if you could eat my pudding or something 
+
+Daystar
+I know better than to eat your food
+Okay, gotta ask Jill too. 
+But thanks
+
+9:15pm 
+Marmar
+What kind of person is she? Is there anything I should know before I meet her?
+
+(Continue chat )
+
+***
+
+9:07pm
+Daywalker 
+Marmar already said yes, but I need to get your go ahead for a favour
+I have a friend who got evicted and needs a place to crash, can she stay with us at least until the end of semester?
+
+Jillian-hands-on-buns
+Don't care
+If Mar says it's good, that probably enough 
+She puts more thought into this stuff
+We're heading home at the moment btw
+Can you pop the frozen pies in the oven for us?
+You'd be a godsend
+
+***
+
+Saturday 9:13am
+
+She_who_mar_wont_touch
+David looked really weird this morning 
+
+She_who_Jelly_refuses_to_vivisect
+Did he have pants on?
+He's really spacey in the morning 
+
+She_who_mar_wont_touch
+He was really smiley and excited
+Like a maiden in love
+
+She_who_Jelly_refuses_to_vivisect
+Guys are allowed to have crushes you know.
+
+She_who_mar_wont_touch
+It's suspicious is all
