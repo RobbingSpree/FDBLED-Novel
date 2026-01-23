@@ -26,7 +26,7 @@ Why did she drag me out of there right after?
 
 "Then we can stop walking and let me rest?" I think I stopped breathing when she kissed me and I've been out of breath since.
 
-"Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express and that doesn't stop near Blake's house so we won't see anyone who'll know us." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I kinda want to pass out and not exist for a week. I don't want anyone to know I was crying just now.
+"Nope, we're gonna walk one more bus stop away and then catch the next bus, it'll be an express and that doesn't stop near Blake's house so we won't see anyone who'll know us." Amity, why do you want to hide now? What about what you just did means you have to hide? I want to hide. I kinda want to pass out and not exist for a week too. I don't want anyone to know I was crying just now.
 
 How can I ask her why she kissed me like that and not just one on the cheek? What's a concise question that'll sum that all up?
 
@@ -38,7 +38,7 @@ She hasn't looked at me since she started dragging me. And she still hasn't, she
 
 "Do you want another one? Before wasn't anything special. I didn't think you liked physical affection..." I think she said my name at the end there, if she looked at me when she was talking I could probably hear her. She must have hated it as much as I did if she still can't look at me.
 
-Brain get back here, I need to put my foot in my mouth again. Amity is clearly teasing me, so clearly: I have to win. If this is a game, I can win it. If she thinks a kiss is nothing special then I'll show her I'm nothing special too...yeah, let's stick with that. I'm nothing special.
+Brain get back here, I need to put my foot in my mouth again. Amity is clearly teasing me, so clearly: I have to win. If this is a game, I can beat her. If she thinks a kiss is nothing special then I'll show her I'm nothing special too...yeah, let's stick with that. I'm nothing special.
 
 "Anything you can dish out I can take." I really hope she doesn't call my bluff. I don't know if my legs will hold out if she does actually try and kiss me again, I don't know what kind of man she'd think I am if she knows my knees go weak at the thought of another kiss. 
 
@@ -111,7 +111,7 @@ Maybe if I come on too strong I'll scare them off. Just tear the breaks off and 
 
 "Well...I'd be inviting Grace to stay, not Gavin." That's the same expression I saw when I first thought I was being clever. "The other people I live with don't like sharing their space with guys. I got a pass cause they were desperate and I proved myself. But they don't know you. They're too busy when the Sunday dinners are on and most afternoons, so they've not met Gavin and would probably veto anyone but Grace from staying." 
 
-"So...I just have to dress like a girl at your place."
+"That explains why we always have to leave leftovers. So...I just have to dress like a girl at your place."
 
 "And answer to Grace, like you normally do when dressed that way."
 
