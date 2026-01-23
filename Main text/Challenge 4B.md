@@ -42,7 +42,7 @@ Gavin! Fuck!
 
 Why didn't I reach out to you and make a bet with you before coming here tonight? Why did I let last week sour everything? Over what? Seventy bucks? I know Gav doesn't have that kind of money. He only ate lunch that day cause I gave him lunch money. Why did it bother me so much? Why do I feel like tonight has just been an utter mess and a mistake?
 
-Gavin's looking at me expectantly. I think he said more, but I clearly had more important things to think about. He's trying to sneak closer and hold me more securely in his arms.
+Gavin's looking at me expectantly. I think he said more, but I clearly had more important things to think about. He's trying to sneak closer and hold me more securely in his arms but all I can think of is pretending she's a girl.
 
 "Oi! Hands off my girl." 
 
