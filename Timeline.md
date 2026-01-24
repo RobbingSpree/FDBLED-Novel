@@ -38,3 +38,6 @@ Amity full on kisses Gavin cause she's mad about her crush on Grace
 Gavin tells Amity they're leaving cause they're homeless otherwise 
 Amity invites Grace only to live with her for the rest of the semester 
 Felicity gets wires crossed and thinks Gavin kissed Dylan
+
+Saturday 24th April
+Grace moves into David's apartment

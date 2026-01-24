@@ -20,7 +20,7 @@ I just had to find a way to get Aaron to leave so I could challenge her to some 
 
 "Ohh, you've got the dart board up, Daveo. You wanna learn how to play, Grace?" Aaron seemed only to notice the least helpful things today.
 
-"Yeah, David was just schooling me." She said with a wicked smile is never seen Gavin wear. I felt like she was having fun at my expense somehow.
+"Yeah, David was just schooling me." She said with a wicked smile I'd never seen Gavin wear. I felt like she was having fun at my expense somehow.
 
 "Well, show us what you've learned. Take these…" Aaron walked over and plucked the green darts that were still there from Gavin's earlier flub. "And if you can hit the twenny, I'll do you any favours. If Dave's not been a gracious host I'll give 'im a right wack for ya." Aaron's hands dwarfed the darts as he handed them over.
 
