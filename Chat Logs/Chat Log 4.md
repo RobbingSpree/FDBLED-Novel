@@ -137,6 +137,7 @@ What kind of person is she? Is there anything I should know before I meet her?
 
 9:21pm
 Daystar
+She's called Grace
 She's a bit of a mischief maker. But that might just be with me
 We've been in a little bit of a battle to the death for the last few weeks
 (The death battle is unrelated to her being homeless)
