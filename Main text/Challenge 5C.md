@@ -18,15 +18,19 @@ Having been coming to David's house for a year or so for Sunday dinners I'm well
 
 "Girl, you are waaaay too trusting." I'm more amazed neither of these two have sused out that I'm not a girl. "Mar, we have to protect this pure creature."
 
-Okay, so these two may have forgotten to introduce themselves, but in their defence so did I (but they do seem to already know my name). But I have worked out that that one is Jell and the other is Mar. Neither of those sound like human names, especially not for a girl. So I have no idea what to actually call them, cause I don't think I'm allowed to use nicknames in the same hour as meeting them.
+Okay, so these two may have forgotten to introduce themselves, but in their defence so did I (but they do seem to already know my name). But I have worked out that that one is Jell and the other is Mar. Neither of those sound like human names, especially not for girls. So I have no idea what to actually call them, cause I don't think I'm allowed to use nicknames in the same hour as meeting them.
 
-(Describe them)
+Mar is about as short as David but has hair I'm dead jealous of. She's got it up in two buns on top of her head, like a chest height muffin assortment, and just as pleasant. She's constantly looking over at Jell to prompt them to stay involved in the conversation or read their expression. 
+
+Jell on the other hand is taller than I am and built like a truck. If everyone has been calling David a short king (not for long if my plans work out), Jell would be a muscle Mommy. I'm sure she could lift both Mar and myself without breaking a sweat. But what she can't hold is her attention, she's clearly paying attention (and asking all the follow up questions), but she looks quite bored. Which I can see where she's coming from, meeting other uni students isn't the most thrilling thing. You swap your degrees and names and most people keep as much about themselves secret trying to manufacture a good first impression based on what the other says.
+
+I don't think I did that today. I'm pretty sure I've bungled this like I've bungled every other first impression. Gotta turn that around in time with skill and effort.
 
 "I saw her sunbathing earlier. She might just be a cat in disguise." Don't react to that...they might think you ARE a cat in disguise. "And I know you're small in the chest but you should put on a bra with something sleeveless, this place will be crawling with guys later...and David will wake up eventually."
 
-Yeah, fair cop. I just really liked the shirt-thing from among Stuff David got me yesterday. I really was expecting he'd ask me to put on a fashion show after the last two times he got me to put on clothes. But instead he just left to buy ingredients for this evening. So I got to try a bunch on in private (in private but David did bring the giant mirror so I could check myself out). I don't remember the actual name of this, but it looks like the vergin-killer jumper and I liked the idea of pretending to be sexy. After this is done I'll fight with the bra I stole and see if it's an improvement.
+Yeah, fair cop. I just really liked the shirt-thing from among Stuff David got me yesterday. I really was expecting he'd ask me to put on a fashion show after the last two times he got me to put on clothes. But instead he just left to buy ingredients for this evening. Not that I'm complaining, I still put on a fashion show, just one for only me. It was nice to have no time pressure and try things out in private (in private but David did bring the giant mirror so I could check myself out). I don't remember the actual name of this, but it looks like the vergin-killer jumper and I liked the idea of pretending to be sexy. After this is done I'll fight with the bra I stole and see if it's an improvement.
 
-"Yeah..." Jell is doing an impressive job talking with a mouthful of eggs and only making me a little nauseous. "...a few weeks of eating David's food you'll start to put some weight on your body. I can see your ribs, girl" Don't respond. I know I said I would cry next time the opportunity arose, but that's not it. Just pretend you get called a girl all the time and it's not heart-warming. 
+"Yeah..." Jell is doing an impressive job talking with a mouthful of eggs and only making me a little nauseous. "...a few weeks of eating David's food you'll start to put some weight on your frame. I can see your ribs, girl" Don't respond. I know I said I would cry next time the opportunity arose, but that's not it. Just pretend you get called a girl all the time and it's not heart-warming. They are being too kind and it's putting me off my game.
 
 (Space for more fluff and character defining behaviour and Grace realising she can act without holding back)
 

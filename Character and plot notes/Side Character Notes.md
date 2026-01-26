@@ -23,8 +23,8 @@ Hosts the party from Challenge 4
 Mom_2rd
 Aaron's trans mom, married to Aaron's non-trans mom (currently unnamed)
 
-Amity roommate 1 (Jillian), 19, Nursing
-Doesn't care about a lot, does like interesting things.
+Amity roommate 1 (Jillian), 19, Pharmacology 
+Doesn't care about a lot, does like interesting things. Taller than Gavin and much more muscular, was into rock climbing before uni but hasn't had time to get back into it
 
-Amity roommate 2 (Marissa), 18, Nursing
-Highly cafinated, has opinions
+Amity roommate 2 (Marissa), 18, Pharmacology 
+Highly cafinated, has opinions, short like to knit, long straight hair
