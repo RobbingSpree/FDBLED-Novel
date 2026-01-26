@@ -31,4 +31,4 @@ Progress:
 | 5       | B    | Writing   | 1074       |                  | Who am I to Her?                                             |
 | 5       | C    | Writing   | 634        |                  | Reversal of Fates                                            |
 | 5       | D    | Writing   | 1066       |                  | A Game is Afoot                                              |
-| 5       | E    | Writing   | 315        |                  | GGWP                                                         |
+| 5       | E    | Writing   | 1148       |                  | GGWP                                                         |
