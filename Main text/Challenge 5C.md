@@ -28,15 +28,15 @@ I don't think I did that today. I'm pretty sure I've bungled this like I've bung
 
 "I saw her sunbathing earlier. She might just be a cat in disguise." Don't react to that...they might think you ARE a cat in disguise. "And I know you're small in the chest but you should put on a bra with something sleeveless, this place will be crawling with guys later...and David will wake up eventually."
 
-Yeah, fair cop. I just really liked the shirt-thing from among Stuff David got me yesterday. I really was expecting he'd ask me to put on a fashion show after the last two times he got me to put on clothes. But instead he just left to buy ingredients for this evening. Not that I'm complaining, I still put on a fashion show, just one for only me. It was nice to have no time pressure and try things out in private (in private but David did bring the giant mirror so I could check myself out). I don't remember the actual name of this, but it looks like the vergin-killer jumper and I liked the idea of pretending to be sexy. After this is done I'll fight with the bra I stole and see if it's an improvement.
+Yeah, fair cop. I just really liked the shirt-thing from among Stuff David got me yesterday. I really was expecting he'd ask me to put on a fashion show after the last two times he got me to put on clothes. But instead he just left to buy ingredients for this evening. Not that I'm complaining, I still put on a fashion show, just one for only me. It was nice to have no time pressure and try things out in private (in private but David did bring the giant mirror so I could check myself out). I don't remember the actual name of this, but it looks like the virgin-killer jumper and I liked the idea of pretending to be sexy. After this is done I'll fight with the bra I stole and see if it's an improvement.
 
 "Yeah..." Jell is doing an impressive job talking with a mouthful of eggs and only making me a little nauseous. "...a few weeks of eating David's food you'll start to put some weight on your frame. I can see your ribs, girl" Don't respond. I know I said I would cry next time the opportunity arose, but that's not it. Just pretend you get called a girl all the time and it's not heart-warming. They are being too kind and it's putting me off my game.
 
-(Space for more fluff and character defining behaviour and Grace realising she can act without holding back)
+(Space for more fluff and character defining behavior and Grace realizing she can act without holding back)
 
 "I was planning a quick game with David later, with something fun at stake and wanted to get your opinion first to see if you think he'd be against it or not...or if you think he deserves it."
 
-The pair of them lean in close.
+The pair of them lean in close. Jell's eyes light up with interest.
 
 "Go on."
 

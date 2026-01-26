@@ -3,11 +3,13 @@
 
 SHE PLAYED ME LIKE A FIDDLE!!
 
-This wasn't ever a bet. This was a riddle!! And she got me with my over confidence. Luck based game my left nut, this was a setup.
+This wasn't ever a bet. This was a riddle!! And I was blind to her schemes, she got me with my over confidence. Luck based game my left nut, this was a setup.
 
 I tear the piece of paper off the side of the table and read it aloud.
 
-"Hi I'm Grace. David here thinks he's being very clever, but he's agreed that for every dollar I have after eleven am (minus ten dollars) will get translated to hours and that's how long he has to crossdress and go by she/her pronouns and the name Amity (I think it suits her). So if you can run out to the nearest ATM and pull out a few hundred dollars to lend me until eleven it will be the funniest prank to pull on 'David' and be probably worth a few course credits for his Feminism class he said he was taking." These bozos have fucking cavhorted against me.
+"Hi, I'm Grace. David here thinks he's being very clever, but he's agreed that for every dollar I have after eleven am (minus ten dollars) will get translated to hours and that's how long he has to crossdress and go by she/her pronouns and the name Amity (I think it suits her). So if you can run out to the nearest ATM and pull out what you can to lend me until eleven it will be the funniest prank to pull on 'David' and be probably worth a few course credits for his Feminism class he said he was taking." 
+
+These bozos have fucking cavorted against me.
 
 Grace leaned over the table and pointed to some more text along the bottom.
 
@@ -15,7 +17,9 @@ Grace leaned over the table and pointed to some more text along the bottom.
 
 This is next level.
 
-She fucking forcefemmed me. She convinced all our friends that as a fun Sunday prank, before I make them a nice home cooked meal, that they'd tally up...
+She fucking forcefemmed me. 
+
+She convinced all our friends that as a fun Sunday prank, before I make them a nice home cooked meal, that they'd tally up...
 
 "FOUR THOUSAND AND TWENTY NINE DOLLARS?!" I'm gonna be a girl forever. I mean, I did want that, but not like this. 
 
@@ -25,9 +29,9 @@ She fucking forcefemmed me. She convinced all our friends that as a fun Sunday p
 
 ### 10:50am Sunday - Grace
 
-So far this has been a very casual and light hearted game. But I have to play it cool with my impending victory.
+So far this has been a very casual and light hearted game. But I have to play it cool with my impending victory. That I hope is coming. Please?
 
-So far a few people have come by, I've pointed to the sign each time, they catch on and head back out.
+So far a few people have come by, I've pointed to the sign each time, they seem to catch on and head back out.
 
 Checking my phone one last time, now is about when I was hoping people would start trickling back in.
 
@@ -35,7 +39,7 @@ The door creeks open, right on cue. Aaron returns, alone this time. He looks inc
 
 "Hey there, I'm running a little low on cash for my game of poker. Can I borrow any spare change you've got on hand? As long as that's okay with you?" David has swung back and forth from stressed out of his mind to genuinely relaxed during this game, it's a shame this is all a trick. I was really expecting David to clock how I was going to win this and insist that he be allowed to buy out as much time as I earned so he could prevent this getting out of hand.
 
-"Yeah, I don't think you can come back from this, I'm wondering what I can buy with my winnings." David...I'm not going to do chores in a maid costume. That would make you look incredibly racist.
+"Yeah, I don't think you can come back from this, I'm wondering what I can buy with my five dollars of winnings." David...I'm not going to do chores in a maid costume. That would make you look incredibly racist.
 
 "Good." Aaron slaps down a stack of twenty dollar bills. 
 
@@ -55,9 +59,9 @@ Over the course of the next five minutes...almost as if they had been waiting ou
 
 "If I was keeping track...four point zero two nine thousand." I think a few people tried to organise so it would end with six nine, but alas it was for naught.
 
-David tears the piece of paper off the side and reads it aloud. The real magic was everyone playing along and being quiet. If anyone had asked a question or kicked a fuss rather than play along David would have been tipped off and I would have had to spend the hour arguing my case that I should be allowed to win. Instead we're at the literal eleventh hour and momentum and social pressure says I'm unimpeachable.
+David tears the piece of paper off the side and reads it aloud. The real magic was everyone playing along and being quiet. If anyone had asked a question or kicked a fuss rather than play along: David would have been tipped off and I would have had to spend the hour arguing my case that I should be allowed to win. Instead we're at the literal eleventh hour and momentum and social pressure says I'm unimpeachable.
 
-"FOUR THOUSAND AND TWENTY NINE DOLLARS?!" Yeah, I think they might have been holding some anamosity for something. Cause that's a real turn out when the ATMs near here have pretty small daily cash limits.
+"FOUR THOUSAND AND TWENTY NINE DOLLARS?!" Yeah, I think they might have been holding some animosity for something. Cause that's a real turn out when the ATMs near here have pretty small daily cash limits.
 
 "That's a hundred and sixty seven and a half days." The one advantage of taking maths seriously as a kid is that I can do transformations like this in my head. Thank you maths, for being the one class none of my bullies could keep up in. "About five and a half months. It's a little more than I expected, but good job team. This'll knock the wind out of David's sails for a hot minute." I turn to the gathered audience, I kinda of need to play this up so they get as different an opinion of me as possible compared to what they thought of me as Gavin. 
 
