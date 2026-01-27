@@ -48,4 +48,34 @@ Literally crying over the possibility of a second kiss? It must have been the da
 
 Tonight was actually really nice.
 
-No one made any untoward comments
+No one made any untoward comments or hinted that they knew I was a guy. Other than having no plan for classes tomorrow or how to pay for tuition next week things are looking up.
+
+I always left well before this point of the evening to dumpster dive behind the super market, it's so chill and quiet. Very reminiscent of the day a few weeks ago when Amity first challenged me to darts, quiet but with the soft sound of people moving about.
+
+It's just Amity and me now, I'm elbow deep in the dishes and Amity's been wiping down all the surfaces. I didn't know how nice it is to work WITH someone else. Maybe I don't need to keep up my guard every moment I'm with Amity now...maybe I can trust her a little.
+
+"Hey Grace..." Her voice cuts into my mind, I don't know why she sounds so different since I won earlier, she's not even wearing her normal girl clothes that accompanies this voice. She's got a very sly look on her face, did she find something one of the guys left behind? "So the rules were if I finished ahead of my starting total..." 
+
+What? Wait...what? Think Grace, what did you say? I was trying to stop her from asking any more questions. What did I say? 
+
+If she was ahead...she could have any favor...even...a second...
+
+She's so close.
+
+Does she want a kiss now? Now!? When my arms are covered in soap suds? And I keep dropping plates!! God damn, Amity! Keep it in your pants. Why are you continuing this joke? You date girls, I've met them. I'm not...
+
+Am I not?
+
+No one said otherwise today. Mar and Jell said I was a girl a bunch of times. And Amity only dates girls...
+
+Am I girls?
+
+I am...aren't I?
+
+I'm a girl.
+
+I'm a girl I'm a girl I'm a girl I'm a girl!!
+
+Fuck, why was this the thing I cry at?
+
+Maybe I just tell Amity the truth...wait... where'd she go?

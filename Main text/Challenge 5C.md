@@ -32,7 +32,7 @@ Yeah, fair cop. I just really liked the shirt-thing from among Stuff David got m
 
 "Yeah..." Jell is doing an impressive job talking with a mouthful of eggs and only making me a little nauseous. "...a few weeks of eating David's food you'll start to put some weight on your frame. I can see your ribs, girl" Don't respond. I know I said I would cry next time the opportunity arose, but that's not it. Just pretend you get called a girl all the time and it's not heart-warming. They are being too kind and it's putting me off my game.
 
-(Space for more fluff and character defining behavior and Grace realizing she can act without holding back)
+Before they ask more questions I should turn things around to stem the flow of questions.
 
 "I was planning a quick game with David later, with something fun at stake and wanted to get your opinion first to see if you think he'd be against it or not...or if you think he deserves it."
 
