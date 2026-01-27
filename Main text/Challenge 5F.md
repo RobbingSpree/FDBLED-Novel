@@ -79,3 +79,5 @@ I'm a girl I'm a girl I'm a girl I'm a girl!!
 Fuck, why was this the thing I cry at?
 
 Maybe I just tell Amity the truth...wait... where'd she go?
+
+What a tease, if she's going to be like that then I can play that too. 
