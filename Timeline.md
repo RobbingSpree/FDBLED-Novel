@@ -41,3 +41,15 @@ Felicity gets wires crossed and thinks Gavin kissed Dylan
 
 Saturday 24th April
 Grace moves into David's apartment
+Grace gets more clothes
+Grace starts picking a new username
+
+Sunday 25th April
+Grace meets Marissa and Jillian
+Amity is trapped as Amity for the next 5 months
+Grace concludes she's a girl now
+Amity and Grace both get injected with their first dose of HRT
+
+Monday 26th
+Amity finds Grace trying to set up a camera to do some only fans for money
+challenge becomes who can thirst trap the most people on reddit

@@ -2,13 +2,13 @@
 
 "Nice to meet you properly Grace, and I'll chat to you later...Amity." Fuck you Aaron. 
 
-I turn on Grace now the apartment is empty, I've got about thirty minutes before the wonder twins return and need to get some things straight...if we ignore the gay urges.
+I turn on Grace now the apartment is empty, I've got about thirty minutes before the pharmacology wonder twins return and need to get some things straight...if we ignore the gay urges.
 
 "So was that the totality of your scheme?"
 
 "I was gonna tell Mar and Jell too if it went well, they were oddly onboard as soon as I mentioned the plan this morning before you got up. If I'm trapped like this it seems only fair that you be too. What are their actual names by the way?"
 
-Don't hit her. We don't hit women...wait...I'm a women now. Am I allowed to hit Grace? It's still a crime...so no?
+Don't hit her. We don't hit women...wait...I'm a women now. Am I allowed to hit Grace? Assault is still a crime...so no?
 
 Wait...this apartment is now nothing but women. This was my dream when I imagined what university life would be like. Before I get stuck on that thought, I need to do something about Grace winning today. It can't be a total victory, my pride won't allow it.
 
@@ -60,7 +60,7 @@ What? Wait...what? Think Grace, what did you say? I was trying to stop her from 
 
 If she was ahead...she could have any favor...even...a second...
 
-She's so close.
+She's so close. When did she get so close?
 
 Does she want a kiss now? Now!? When my arms are covered in soap suds? And I keep dropping plates!! God damn, Amity! Keep it in your pants. Why are you continuing this joke? You date girls, I've met them. I'm not...
 
@@ -76,8 +76,8 @@ I'm a girl.
 
 I'm a girl I'm a girl I'm a girl I'm a girl!!
 
-Fuck, why was this the thing I cry at?
+Fuck, why was this the thing I cry at? At least it's over the sink so Amity doesn't have to wipe down another surface.
 
 Maybe I just tell Amity the truth...wait... where'd she go?
 
-What a tease, if she's going to be like that then I can play that too. 
+What a tease, if she's going to be like that then I can play that game too. 

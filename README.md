@@ -27,8 +27,11 @@ Progress:
 | 4       | C    | Finished  | 1235       | 21152            | Because We Help Our Friends                                  |
 | 4       | D    | Finished  | 1606       | 22758            | My Heart Burns for You But I am Notably on Fire              |
 | 4       | Chat | Finished  | 847        | 23605            |                                                              |
-| 5       | A    | Writing   | 898        |                  | Out of the Frying Land and Into the Other Frying Pan I Guess |
-| 5       | B    | Writing   | 1074       |                  | Who am I to Her?                                             |
-| 5       | C    | Writing   | 634        |                  | Reversal of Fates                                            |
-| 5       | D    | Writing   | 1066       |                  | A Game is Afoot                                              |
-| 5       | E    | Writing   | 1148       |                  | GGWP                                                         |
+| 5       | A    | Finished  | 898        |                  | Out of the Frying Land and Into the Other Frying Pan I Guess |
+| 5       | B    | Finished  | 1074       |                  | Who am I to Her?                                             |
+| 5       | C    | Finished  | 921        |                  | Reversal of Fates                                            |
+| 5       | D    | Finished  | 1129       |                  | A Game is Afoot                                              |
+| 5       | E    | Finished  | 1164       |                  | GGWP                                                         |
+| 5       | F    | Finished  | 997        |                  |                                                              |
+| 5       | Chat | Finished  | 920        |                  |                                                              |
+| 6       | A    | Planning  |            |                  |                                                              |
