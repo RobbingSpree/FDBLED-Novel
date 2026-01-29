@@ -20,7 +20,7 @@ Back in the storage room Grace has finished unpacking her everything. A digital 
 
 "The bed sheets." Tell me you just threw them out cause they were as worn through as your shoes and you weren't sleeping on bare mattresses.
 
-"Don't need one without a mattress." Grace. I will make you sleep on my bed and I'll take the couch at this rate. I thought those pictures of guy's apartments with no furniture and a bare mattress on the floor were just jokes people captured while moving in or out. Grace, you're showing how there's always someone more bizzare than you can imagine, thank you.
+"Don't need one without a mattress." Grace. I will make you sleep on my bed and I'll take the couch at this rate. I thought those pictures of guy's apartments with no furniture and a bare mattress on the floor were just jokes people captured while moving in or out. Grace, you're showing how there's always someone more bizarre than you can imagine, thank you.
 
 "Okay...well setting that aside for later." If I don't move on I will really turn into her mom and start doting on her. "Can you try on some of the clothes I brought you? You can't...won't...aren't allowed to only wear one outfit."
 

@@ -29,7 +29,7 @@ She convinced all our friends that as a fun Sunday prank, before I make them a n
 
 ### 10:50am Sunday - Grace
 
-So far this has been a very casual and light hearted game. But I have to play it cool with my impending victory. That I hope is coming. Please?
+So far this has been a very casual and lighthearted game. But I have to play it cool with my impending victory. That I hope is coming. Please?
 
 So far a few people have come by, I've pointed to the sign each time, they seem to catch on and head back out.
 
