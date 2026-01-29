@@ -32,6 +32,6 @@ Progress:
 | 5       | C    | Finished  | 921        |                  | Reversal of Fates                                            |
 | 5       | D    | Finished  | 1129       |                  | A Game is Afoot                                              |
 | 5       | E    | Finished  | 1164       |                  | GGWP                                                         |
-| 5       | F    | Finished  | 997        |                  |                                                              |
+| 5       | F    | Finished  | 997        |                  | Don't Kiss or Make Up                                        |
 | 5       | Chat | Finished  | 920        |                  |                                                              |
 | 6       | A    | Planning  |            |                  |                                                              |
