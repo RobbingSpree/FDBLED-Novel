@@ -28,3 +28,4 @@ Doesn't care about a lot, does like interesting things. Taller than Gavin and mu
 
 Amity roommate 2 (Marissa), 18, Pharmacology 
 Highly cafinated, has opinions, short like to knit, long straight hair
+Has a crush on Jillian, strong lesbian vibes 
