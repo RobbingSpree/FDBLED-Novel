@@ -88,7 +88,7 @@ Gotta stop thinking about forcefemming my friend.
 
 The weird plushness of the seat we're sitting on buckles and warps as someone else sits down on it. The fake leather fabric offers no protection and I slide onto Grace's cushion, become a gravity well and essentially pull her into my lap.
 
-She feels tense against me, her whole body trying it's best to not lean into me and let me hold her weight. Fuuuuuuuck, I wanna hold her so bad. One kiss wasn't enough. With her in my lap, I would just need to hold her chin and I could kiss her again.
+She feels tense against me, her whole body trying it's best to not lean into me and let me hold her weight. Fuuuuuuuck, I wanna hold her so bad. I want her to want me. One kiss wasn't enough. With her in my lap, I would just need to hold her chin and I could kiss her again. She let me do it last time, would she let me do it again?
 
-"You managed Sunday so well, you could be a girl full time like me." I want her to be Grace all the time. I want to be able to see her like this more often. I want to be able to go on casual dates with her. Goddamn I want this girl.
+"You managed Sunday so well, you could be a girl full time like me." I want her to be Grace all the time. I want to be able to see her like this more often. I want to be able to go on casual dates with her. Goddamn, I want this girl bad.
 
