@@ -66,15 +66,29 @@ Don't think about how she's close enough to kiss you again. Or that she could pu
 
 ### 4:21pm Monday - Amity
 
-"I'd rather be selling feet pics." Don't tempt me, miss. "It's so close to closing. I had to come in a revealing tank top." I'm so glad you did, Grace. It's how I'm surviving the dirth of joy that is Student Services. "How are there so many other people here?"
+"I'd rather be selling feet pics." Don't tempt me, miss. "It's so close to closing. I had to come in a revealing tank top." I'm so glad you did, Grace. It's how I'm surviving the dearth of joy that is Student Services. "How are there so many other people here?"
 
-"It is close to the census date, they're probably here to withdraw from subjects before they get added to their HECS. So the same as you but backwards." She looks kinda mad still, has she been noticing me sneaking glances at her chest? I know she's got nothing there, even if I'd been living out some forcefemme fantasy and injecting her with hormones she doesn't eat enough to bloom a pair of boobs. And I've been all hot and bothered since she got all up in my face before.
+"It is close to the census date, they're probably here to withdraw from subjects before they get added to their HECS. So the same as you but backwards." She looks kinda mad still, has she been noticing me sneaking glances at her chest? I know she's got nothing there, even if I'd been living out some forcefemme fantasy and injecting her with hormones: she doesn't eat enough to bloom a pair of boobs. 
 
-I didn't know someone's crying face could be so hot. I'm gonna be so normal about that later when I'm alone.
+We're just sitting on adjacent chairs like normal friends would...and I've been all hot and bothered since she got all up in my face before. I'm being so chill about how close I am to her and not focusing on every time we accidentally bump.
 
-I gotta take my mind off how good she looked and how many things I'd seen online made so much more sense in that moment. 
+I didn't know someone's crying face could be so hot. I'm gonna be so normal about that later when I'm alone. Or if she cries on me again. I gotta take my mind off how good she looked and how many things I'd seen online made so much more sense in that moment. 
 
-"Hey Grace...people would maybe make a fuss if they saw you still taking classes after you said you left. Right?"
+Gotta stop thinking about forcefemming my friend.
 
-"Don't remind me. I've got a lecture and a tutorial tomorrow and my plan is to skip the lecture and do the tutorial from one of the computer labs that are free."
+"Hey Grace...people would maybe make a fuss if they saw you still taking classes after you said you left. Right?" Brain, I said stop.
+
+"Don't remind me. I've got a lecture and a tutorial tomorrow and my plan is to skip the lecture and do the tutorial from one of the computer labs that are free. I'll just get someone in the class to get me marked present." 
+
+"All semester long?" If I just put my arm on the back of the seat, and not around her waist. That'll stop me.
+
+"I just need to find a place I can end this transformation safely. I was tempted to use the LGBTQ space, but the people there are a bit intense." I know them well, I checked them out last year to see if I could make some friends, but they were already such a tight knit group I just felt like I was butting in. "And the gym is segmented by sex, and the unisex bathrooms are weirdly popular."
+
+"Then just don't stop." Amity. We can stop here. We don't need to say anything else. You have enough. You still get to hang out with Grace. You sat so close to her before, things are fine.
+
+The weird plushness of the seat we're sitting on buckles and warps as someone else sits down on it. The fake leather fabric offers no protection and I slide onto Grace's cushion, become a gravity well and essentially pull her into my lap.
+
+She feels tense against me, her whole body trying it's best to not lean into me and let me hold her weight. Fuuuuuuuck, I wanna hold her so bad. One kiss wasn't enough. With her in my lap, I would just need to hold her chin and I could kiss her again.
+
+"You managed Sunday so well, you could be a girl full time like me." I want her to be Grace all the time. I want to be able to see her like this more often. I want to be able to go on casual dates with her. Goddamn I want this girl.
 

@@ -35,6 +35,8 @@ What?
 Jelly
 Amity has to use she/her pronouns too right?
 You're dogshit at this forcefem stuff
+Also, do that shit at night.
+Amity was dead asleep by 1am when I got her
 
 ***
 
