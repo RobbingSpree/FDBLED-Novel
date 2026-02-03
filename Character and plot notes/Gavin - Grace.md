@@ -1,4 +1,4 @@
-Gavin/Grace, 19, comp sci student
+Gavin/Grace, 19, comp sci student, surname: Evans
 
 A lanky human who feels ill at ease with their body and wishes someone would force fem them as they don't have the courage nor the confidence that they would look any good. When David challenges them to the first contest is far too nervous to hit the target in their panic of being found out by a friend.
 

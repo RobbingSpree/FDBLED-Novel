@@ -29,3 +29,6 @@ Doesn't care about a lot, does like interesting things. Taller than Gavin and mu
 Amity roommate 2 (Marissa), 18, Pharmacology 
 Highly cafinated, has opinions, short like to knit, long straight hair
 Has a crush on Jillian, strong lesbian vibes 
+
+Clare, 26, high school graduate, paper pusher job
+Grace's older sister. 7 years older, spent a long time treating Grace like she was a small toy Clare could play with or cuddle. Grace essentially goes limp rather than fight her sister when snatched for a cuddle. Hasn't been told Grace is trans.
