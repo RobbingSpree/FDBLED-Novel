@@ -31,7 +31,13 @@ Progress:
 | 5       | B    | Finished  | 1074       |                  | Who am I to Her?                                             |
 | 5       | C    | Finished  | 921        |                  | Reversal of Fates                                            |
 | 5       | D    | Finished  | 1129       |                  | A Game is Afoot                                              |
-| 5       | E    | Finished  | 1164       |                  | GGWP                                                         |
-| 5       | F    | Finished  | 997        |                  | Don't Kiss or Make Up                                        |
+| 5       | E    | Finished  | 1163       |                  | GGWP                                                         |
+| 5       | F    | Finished  | 1002       |                  | Don't Kiss or Make Up                                        |
 | 5       | Chat | Finished  | 920        |                  |                                                              |
-| 6       | A    | Planning  |            |                  |                                                              |
+| 6       | A    | Written   | 1654       |                  |                                                              |
+| 6       | B    | Written   | 1502       |                  |                                                              |
+| 6       | C    | Written   | 1272       |                  |                                                              |
+| 6       | D    | Written   | 2037       |                  |                                                              |
+| 6       | E    | Written   | 634        |                  |                                                              |
+| 6       | Chat | Writing   |            |                  |                                                              |
+| 7       | A    |           |            |                  |                                                              |
