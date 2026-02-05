@@ -8,9 +8,9 @@ Felicity, 20, Art Major in Photography
 
 A downstairs neighbor to Gavin, has a weird blind spot for Gavin and why they like them. When Gav came to her with what sounded like a trans egg they could both jointly forcefem she was on board. A little sexist.
 
-Fork Bomb, 18, Comp Sci
+York (Fork Bomb), 18, Comp Sci
 
-Knows Gavin in person from the start of the semester, but doesn't turn up to lectures and some tutorials so Gavin gets them marked as present, into hacking and 3D printing. 
+Knows Gavin in person from the start of the semester, but doesn't turn up to lectures and some tutorials so Gavin gets them marked as present, into hacking and 3D printing. Has a cat called Clive
 
 Dylan, 20, Law
 
@@ -32,3 +32,9 @@ Has a crush on Jillian, strong lesbian vibes
 
 Clare, 26, high school graduate, paper pusher job
 Grace's older sister. 7 years older, spent a long time treating Grace like she was a small toy Clare could play with or cuddle. Grace essentially goes limp rather than fight her sister when snatched for a cuddle. Hasn't been told Grace is trans.
+
+Human Clive, 24, Masters in Comp Sci, TA for comp sci classes
+confused by all human interaction. York calls them Human Clive and Grace doesn't know it's a joke and calls them that too and it sticks
+
+Sophie, 20, Art (traditional media)
+David's most recent ex-girlfriend

@@ -1,4 +1,3 @@
-
 # Watching Her Closely
 ### Monday 6:49am - Amity
 
