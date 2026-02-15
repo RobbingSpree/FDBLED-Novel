@@ -34,10 +34,12 @@ Progress:
 | 5       | E    | Finished  | 1163       |                  | GGWP                                                         |
 | 5       | F    | Finished  | 1002       |                  | Don't Kiss or Make Up                                        |
 | 5       | Chat | Finished  | 920        |                  |                                                              |
-| 6       | A    | Written   | 1654       |                  |                                                              |
-| 6       | B    | Written   | 1502       |                  |                                                              |
-| 6       | C    | Written   | 1272       |                  |                                                              |
-| 6       | D    | Written   | 2037       |                  |                                                              |
-| 6       | E    | Written   | 634        |                  |                                                              |
-| 6       | Chat | Writing   |            |                  |                                                              |
-| 7       | A    |           |            |                  |                                                              |
+| 6       | A    | Written   | 1654       |                  | Watching Her Closely                                         |
+| 6       | B    | Written   | 1502       |                  | Fear Drives Her                                              |
+| 6       | C    | Written   | 1272       |                  | Inventing Your Own Problems                                  |
+| 6       | D    | Written   | 2037       |                  | Worse Than Death                                             |
+| 6       | E    | Written   | 634        |                  | Mad, Glad and Full of Sad                                    |
+| 6       | Chat | Written   | 1408       |                  |                                                              |
+| 7       | A    | Writing   |            |                  | Armed With Knowledge but Untrained in it's Use               |
+| 7       | B    | Writing   |            |                  | Professionals Wish They Could Fuck Things Up This Well       |
+| 7       | C    |           |            |                  |                                                              |
