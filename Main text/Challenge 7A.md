@@ -16,5 +16,7 @@
 
 "Okay...so how are we supposed to get you to test the bed? I could have just bought it online if we didn't care to test it. I want to know you'll actually use it. Cause I am TERRIBLE at doing returns in time to get a proper refund."
 
-"You go inside, have a look around, see if they've got any floor stock and check if Flik is working. If not, give me a call and let me know it's safe." I'll just wait around... upstairs. I don't want to end up letting Flik sneak up on me if she is working and is just on lunch now.
+"You go inside, have a look around, see if they've got any floor stock and check if Flik is working. If not, give me a call and let me know it's safe." I'll just wait around...upstairs. I don't want to end up letting Flik sneak up on me if she is working and is just on break right now.
+
+
 

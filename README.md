@@ -43,3 +43,4 @@ Progress:
 | 7       | A    | Writing   |            |                  | Armed With Knowledge but Untrained in it's Use               |
 | 7       | B    | Writing   |            |                  | Professionals Wish They Could Fuck Things Up This Well       |
 | 7       | C    |           |            |                  |                                                              |
+|         |      |           |            |                  |                                                              |
