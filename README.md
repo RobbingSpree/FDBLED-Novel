@@ -40,7 +40,12 @@ Progress:
 | 6       | D    | Written   | 2037       |                  | Worse Than Death                                             |
 | 6       | E    | Written   | 634        |                  | Mad, Glad and Full of Sad                                    |
 | 6       | Chat | Written   | 1408       |                  |                                                              |
-| 7       | A    | Writing   |            |                  | Armed With Knowledge but Untrained in it's Use               |
-| 7       | B    | Writing   |            |                  | Professionals Wish They Could Fuck Things Up This Well       |
+| 7       | A    | Writing   |            |                  | We Can't All Be Lost                                         |
+| 7       | B    | Writing   |            |                  |                                                              |
 | 7       | C    |           |            |                  |                                                              |
 |         |      |           |            |                  |                                                              |
+
+
+Titles dropped:
+Armed With Knowledge but Untrained in it's Use
+Professionals Wish They Could Fuck Things Up This Well
