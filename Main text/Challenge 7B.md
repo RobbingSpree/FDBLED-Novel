@@ -4,15 +4,19 @@
 
 Who dose she think she is? 
 
-My chastity is at risk?
+MY chastity is at risk?
 
-I have been so close to just jumping her bones so many times. My chastity.
+I have been so close to just jumping HER bones so many times. MY chastity?
 
-I think I'm cute, but I know better than to think anyone else sees me that way. Especially Amity. This will be a stealth mission, Snake. 
+I think I'm cute, but I know better than to think anyone else sees me that way. Especially Grace. This will be a stealth mission, Snake. 
 
 "Colonel, I'm trying to sneak around. But I'm dummy- that was quick. Hello, Grace. Where are you hiding?"
 
 "I'm not telling you. You might accidentally give it away."
+
+"Are you close? Can you see me?"
+
+"I'm still nearby, but I can't see you so don't think about doing a dance or waving."
 
 "You're very serious about privacy...actually I was thinking about getting a lock for your door."
 
@@ -24,23 +28,23 @@ I think I'm cute, but I know better than to think anyone else sees me that way. 
 
 "You know what...we'll set this aside for the time being and I'll pay attention to the beds."
 
-"All glory to the time being."
+"All glory to the Time Being."
 
-"You are such a distraction, chirping in my ear. I'm gonna walk right past it, and you'll be to blame."
+"You are such a distraction, chirping in my ear. I'm gonna walk right past the display, and you'll be to blame."
 
-"Oh really?" FUCK. Why was that such a turn on? Just talk a little lower? And I end up sitting on one of the beds cause me knees gave out. That's illegal! How can she have such a powerful effect on me? 
+"Oh really?" FUCK. Why was that such a turn on? She just talked a little lower? And I end up sitting on one of the beds cause me knees gave out. That's illegal! How can she have such a powerful effect on me? 
 
 It's not fair.
 
 I kissed her and she's unflappable, but she just says stuff and I get flustered? What am I supposed to do if this happens when we're in person? Just invent a medical condition that justifies floppy legs?
 
-"Ohh, I can see them. They've got them next to a set of cots. You gonna come in then?"
+"Ohh, I can see them. They've set them out next to a row of cots. You gonna come in then?"
 
 "Sure, give a yell so I know where abouts you ended up?"
 
-"You can't see me?"
+"You're close enough to hear but not to see?"
 
-"Nope. Are you waving you arm?"
+"Dunno....are you waving you arm?"
 
 "No."
 
@@ -56,7 +60,7 @@ Why is she silent now?
 
 "No...ehehehehehehe. Do you just do what you're told all the time? People are going to take advantage of you."
 
-"Like trick me into yelling in a shop?"
+"Like tricking me into yelling in a shop?"
 
 "Amity?"
 
@@ -70,5 +74,6 @@ Fuck! How did I forget the other thing I was supposed to do?
 
 "Don't answer-" I don't need the play-by-play commentary, thank you, Grace.
 
+"No, this is..." Grace said she told Felicity in was trans as a joke...well two can play at that game. "A trans friend I've been SUBTLY hitting on. "
 
 
