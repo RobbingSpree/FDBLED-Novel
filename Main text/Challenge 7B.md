@@ -6,7 +6,7 @@ Who dose she think she is?
 
 MY chastity is at risk?
 
-I have been so close to just jumping HER bones so many times. MY chastity?
+I have been so close to just jumping HER bones so many times. MY chastity? The nerve of that woman.
 
 I think I'm cute, but I know better than to think anyone else sees me that way. Especially Grace. This will be a stealth mission, Snake. 
 
@@ -62,18 +62,28 @@ Why is she silent now?
 
 "Like tricking me into yelling in a shop?"
 
-"Amity?"
+"Amity?" Who? Who else knows that name? Who else do I know who sounds like that?
 
 Fuck! How did I forget the other thing I was supposed to do?
 
 "Felicity, hi." Shit...what do I do? "I didn't know you worked here."
 
-"Did you forget why I was staying outside for? Amity. Nooo. Eheheheheheh. What am I going to do with you?" Don't blush. She hates you, remember. This isn't her being cute. You're just getting mixed messages and making assumptions. And she's a jerk.
+"Did you forget why I was staying outside for? Amity. Nooo. Eheheheheheh. What am I going to do with you?" Don't blush. She hates you, remember. This isn't her being cute. You're just getting mixed messages and making assumptions. She thinks the assumption of being trans is something you threaten someone with. And she's a jerk.
 
 "Yeah, I work over in the manchester. Over near that desk. I heard you shout. Sorry, are you on the phone with a boyfriend?" 
 
 "Don't answer-" I don't need the play-by-play commentary, thank you, Grace.
 
-"No, this is..." Grace said she told Felicity in was trans as a joke...well two can play at that game. "A trans friend I've been SUBTLY hitting on. "
+"No, this is..." Grace said she told Felicity I was trans as a joke...well two can play at that game. "A trans lady-friend I've been SUBTLY hitting on. But they never catch on."
 
+"This is a weird lie to tell. Are you trying to make me embarrassed? I'm not the one telling tall tales about her dating life." Exactly, she doesn't even think when I explicitly say I'm flirting with her that I'm even on her radar. I'm such a loser.
 
+"Cute, you're not out with Gavin today?"
+
+"No." Wait, she meant Grace. Well I can't take that back. No need to correct myself, as long as she doesn't see Grace: everything will be fine.
+
+"So what're you here for today? Testing beds?" Hard to have any other reason to be here today when I'm sitting on one and have been looking around the area.
+
+"Yeah, wanted to try out this floor mattress I read about online. Wanted to try something new."
+
+"Oh really?" Did...did she just do the same thing Grace did? Did Grace learn that from Felicity? 
