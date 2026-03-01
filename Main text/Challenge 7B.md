@@ -12,7 +12,7 @@ I think I'm cute, but I know better than to think anyone else sees me that way. 
 
 "Colonel, I'm trying to sneak around. But I'm dummy- that was quick. Hello, Grace. Where are you hiding?"
 
-"I'm not telling you. You might accidentally give it away."
+"I'm not telling you. You might accidentally give it away." I sware, I will never get a straight answer out of this woman.
 
 "Are you close? Can you see me?"
 
@@ -20,11 +20,11 @@ I think I'm cute, but I know better than to think anyone else sees me that way. 
 
 "You're very serious about privacy...actually I was thinking about getting a lock for your door."
 
-"Won't that be a fire hazard?" Don't ask reasonable questions. That's illegal.
+"Won't that be a fire hazard?" Don't ask reasonable questions, Grace. That's illegal.
 
 "I...don't know. I'll find out."
 
-"Are you allowed to make permanent changes to the fixtures?" Did she have a past life as a landlord? Why does she know to ask this?
+"Are you allowed to make permanent changes to the fixtures?" Did she have a past life as a landlord or something? Why does she know to ask this?
 
 "You know what...we'll set this aside for the time being and I'll pay attention to the beds."
 
@@ -58,17 +58,17 @@ Why is she silent now?
 
 "You're not in the store at all aren't you?"
 
-"No...ehehehehehehe. Do you just do what you're told all the time? People are going to take advantage of you."
+"No...ehehehehehehe. Do you just do what you're told all the time? People are going to take advantage of you." I wonder what people would do that?
 
 "Like tricking me into yelling in a shop?"
 
-"Amity?" Who? Who else knows that name? Who else do I know who sounds like that?
+"Amity?" Who? Who else knows that name? Who do I know who sounds like that?
 
 Fuck! How did I forget the other thing I was supposed to do?
 
 "Felicity, hi." Shit...what do I do? "I didn't know you worked here."
 
-"Did you forget why I was staying outside for? Amity. Nooo. Eheheheheheh. What am I going to do with you?" Don't blush. She hates you, remember. This isn't her being cute. You're just getting mixed messages and making assumptions. She thinks the assumption of being trans is something you threaten someone with. And she's a jerk.
+"Did you forget why I was staying outside for? Amity. Nooo. Eheheheheheh. What am I going to do with you?" Don't blush. She hates you, remember. This isn't her being cute. You're just getting mixed messages and making assumptions. She thinks others assuming you being trans is something you can threaten someone with. That's probably a bad thing. I really need to pay more attention in my feminism classes.
 
 "Yeah, I work over in the manchester. Over near that desk. I heard you shout. Sorry, are you on the phone with a boyfriend?" 
 
@@ -86,4 +86,4 @@ Fuck! How did I forget the other thing I was supposed to do?
 
 "Yeah, wanted to try out this floor mattress I read about online. Wanted to try something new."
 
-"Oh really?" Did...did she just do the same thing Grace did? Did Grace learn that from Felicity? 
+"Oh really?" Did...did she just do the same thing Grace did? Did Grace learn that from Felicity? Grace was a lot better at it. 
