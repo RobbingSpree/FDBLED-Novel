@@ -46,5 +46,5 @@ Marissa hooks her arm around mine and leads me back out to the main street.
 
 And cause you're too sexy sounding over the phone she's trapped me on the floor. Cause some stupid idiot's legs are still jelly and I forgot and tried to get up and leave only to sink to the ground.
 
-"I'm not pushy." Felicity is so close. She's close enough that if she was Grace I'd easily be able to kiss her. I shouldn't be thinking about Grace like that. 
+"I'm not pushy." Felicity is so close. She's close enough that if she was Grace I'd easily be able to kiss her. I shouldn't be thinking about Grace like that. And I especially shouldn't think about how soft her lips were. 
 
