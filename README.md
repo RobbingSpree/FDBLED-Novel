@@ -27,21 +27,21 @@ Progress:
 | 4       | C    | Finished  | 1235       | 21152            | Because We Help Our Friends                                  |
 | 4       | D    | Finished  | 1606       | 22758            | My Heart Burns for You But I am Notably on Fire              |
 | 4       | Chat | Finished  | 847        | 23605            |                                                              |
-| 5       | A    | Finished  | 898        |                  | Out of the Frying Land and Into the Other Frying Pan I Guess |
-| 5       | B    | Finished  | 1074       |                  | Who am I to Her?                                             |
-| 5       | C    | Finished  | 921        |                  | Reversal of Fates                                            |
-| 5       | D    | Finished  | 1129       |                  | A Game is Afoot                                              |
-| 5       | E    | Finished  | 1163       |                  | GGWP                                                         |
-| 5       | F    | Finished  | 1002       |                  | Don't Kiss or Make Up                                        |
-| 5       | Chat | Finished  | 920        |                  |                                                              |
-| 6       | A    | Written   | 1654       |                  | Watching Her Closely                                         |
-| 6       | B    | Written   | 1502       |                  | Fear Drives Her                                              |
-| 6       | C    | Written   | 1272       |                  | Inventing Your Own Problems                                  |
-| 6       | D    | Written   | 2037       |                  | Worse Than Death                                             |
-| 6       | E    | Written   | 634        |                  | Mad, Glad and Full of Sad                                    |
-| 6       | Chat | Written   | 1408       |                  |                                                              |
-| 7       | A    | Writing   |            |                  | We Can't All Be Lost                                         |
-| 7       | B    | Writing   |            |                  |                                                              |
+| 5       | A    | Finished  | 898        | 24503            | Out of the Frying Land and Into the Other Frying Pan I Guess |
+| 5       | B    | Finished  | 1074       | 25577            | Who am I to Her?                                             |
+| 5       | C    | Finished  | 921        | 26498            | Reversal of Fates                                            |
+| 5       | D    | Finished  | 1129       | 27627            | A Game is Afoot                                              |
+| 5       | E    | Finished  | 1163       | 28790            | GGWP                                                         |
+| 5       | F    | Finished  | 1002       | 29792            | Don't Kiss or Make Up                                        |
+| 5       | Chat | Finished  | 920        | 30712            |                                                              |
+| 6       | A    | Written   | 1654       | 32366            | Watching Her Closely                                         |
+| 6       | B    | Written   | 1502       | 33868            | Fear Drives Her                                              |
+| 6       | C    | Written   | 1272       | 35140            | Inventing Your Own Problems                                  |
+| 6       | D    | Written   | 2037       | 37177            | Worse Than Death                                             |
+| 6       | E    | Written   | 634        | 37811            | Mad, Glad and Full of Sad                                    |
+| 6       | Chat | Written   | 1408       | 39219            |                                                              |
+| 7       | A    | Writing   | 955        |                  | We Can't All Be Lost                                         |
+| 7       | B    | Writing   | 954        |                  |                                                              |
 | 7       | C    |           |            |                  |                                                              |
 |         |      |           |            |                  |                                                              |
 
