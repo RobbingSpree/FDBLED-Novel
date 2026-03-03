@@ -48,3 +48,22 @@ And cause you're too sexy sounding over the phone she's trapped me on the floor.
 
 "I'm not pushy." Felicity is so close. She's close enough that if she was Grace I'd easily be able to kiss her. I shouldn't be thinking about Grace like that. And I especially shouldn't think about how soft her lips were. 
 
+I don't want to push her away, but I'm already half sure that I have...wait what did she say before?
+
+"Hang on. Are you going to abandon me to go hang out with Mar?" I don't want to sound needy, but I'm just feeling all these feelings right now and I don't know how to deal with it.
+
+"Yeah..." I can't say anything, she already hates me. I don't want her to think I'm a needy bitch. "I'm gonna take Marissa up on her offer." It's a good thing if she wants to be friends with Marmar. "We're clearly not making any progress thanks to your problems." 
+
+Yeah, it's my fault. It's all my fault. I shouldn't have started this whole thing. If I hadn't gotten so caught up in my fantasies about tricking people into letting me be a girl Grace might be having a better time of it. 
+
+"Hey, don't cry." Felicity took the phone right as I can hear Grace say start to say something else. But I don't need to hear more, so I'll let her take it away. "Come on, let me show you my favorite bed."
+
+She takes my hand and tries to lead me away. We probably look suspicious to other customers, I can't stay here and wallow in my failures.
+
+"Have you started HRT?" It's such a weird thing that Grace lied about me and Felicity believed it and she's the first person who's ever asked me anything about being trans. 
+
+"No, I tried doing social stuff first. Plus, I have to get a doctor's note and whatever to start." Why couldn't anyone else treat this as normal? Why can't it just be a normal thing to try out other genders for fun? Everyone's just been pretending that nothing has changed and it kinda infuriates me.
+
+Grace is fine, cause she knows more about the whole thing. But everyone on Sunday kept on clearly avoiding talking about it. And then avoided saying anything when they saw me in person. Like...they were checking I was sticking to the bet, they can comment or ask or say something.
+
+I mean...I do want this to eventually be something that's incredibly normal and fine. 
