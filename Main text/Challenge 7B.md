@@ -8,15 +8,15 @@ MY chastity is at risk?
 
 I have been so close to just jumping HER bones so many times. MY chastity? The nerve of that woman.
 
-I think I'm cute, but I know better than to think anyone else sees me that way. Especially Grace. This will be a stealth mission, Snake. 
+I think I'm cute, but I know better than to think anyone else sees me that way. Especially Grace. Re3gardless, gotta focus on finding that bed thing. This will be a stealth mission, Snake. 
 
-"Colonel, I'm trying to sneak around. But I'm dummy- that was quick. Hello, Grace. Where are you hiding?"
+"Colonel, I'm trying to sneak around. But I'm dummy- that was quick. Hello, Grace. Didn't you tell me to call you? Where are you hiding?"
 
 "I'm not telling you. You might accidentally give it away." I swear, I will never get a straight answer out of this woman.
 
 "Are you close? Can you see me?"
 
-"I'm still nearby, but I can't see you so don't think about doing a dance or waving."
+"I'm still nearby. But don't worry about me, worry about you."
 
 "You're very serious about privacy...actually I was thinking about getting a lock for your door."
 
@@ -58,9 +58,9 @@ Why is she silent now?
 
 "You're not in the store at all aren't you?"
 
-"No...ehehehehehehe. Do you just do what you're told all the time? People are going to take advantage of you." I wonder what people would do that?
+"No...ehehehehehehe. Do you just do what you're told all the time? People are going to take advantage of you." I wonder what people would do that? 
 
-"Like tricking me into yelling in a shop?"
+"Like tricking me into yelling in a shop?" Surely my friends and enemies would be kind enough to not take advantage of me...actually she might right. Wait...is Grace an enemy? Is that a turn on?
 
 "Amity?" Who? Who here knows me? Who do I know who sounds like that?
 
@@ -84,7 +84,7 @@ Fuck! How did I forget the other thing I was supposed to do?
 
 "So what're you here for today? Testing beds?" Hard to have any other reason to be here today when I'm sitting on one and have been looking around the area. Felicity sits down next to me, and due to physics, I slide a little closer as she does, and she moves away to keep a professional distance between us.
 
-"Yeah, wanted to try out this floor mattress I read about online. Wanted to try something new."
+"Yeah, wanted to try out this floor mattress I read about online. Wanted to try something new. 
 
 "Oh really? Something new?" Did...did she just do the same thing Grace did? Did Grace learn that from Felicity? Grace was a lot better at it. Or maybe it hits different if I imagine how Grace is acting when she says it. Am I just overcome with the idea of an imaginary Grace who lusts after me? Am I that touch starved? Can everyone tell? "This brand of beds are a little too soft for my liking, they have a bad habit of causing people to pool together if they sit or lay too close."
 
