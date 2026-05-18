@@ -403,7 +403,7 @@ That makes sense
 Tuesday 26th April 9:37am
 
 Amity
-What time do you finish classes today?
+What time do you finish classes tomorrow?
 I want to meet up at the quad and head out to get you a bed thing
 You need to test the beds before I buy you anything 
 If it's good we can go back later in your car and buy it

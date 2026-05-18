@@ -11,6 +11,8 @@ A downstairs neighbor to Gavin, has a weird blind spot for Gavin and why they li
 York (Fork Bomb), 18, Comp Sci
 
 Knows Gavin in person from the start of the semester, but doesn't turn up to lectures and some tutorials so Gavin gets them marked as present, into hacking and 3D printing. Has a cat called Clive
+Disabilities: POTS, Chronis Fatigue, Hypermobility, Neuro-spicy, Tumblrite
+Tries to cut down on number of trips to the university so as not to over extend herself and end up needing days to recover 
 
 Dylan, 20, Law
 
@@ -27,14 +29,18 @@ Amity roommate 1 (Jillian), 19, Pharmacology
 Doesn't care about a lot, does like interesting things. Taller than Gavin and much more muscular, was into rock climbing before uni but hasn't had time to get back into it. Is a himejoshi stereotype and will take slightly insane steps to make her headcannons canon. Has wanted to inject stuff into people for dubious reasons for years.
 
 Amity roommate 2 (Marissa), 18, Pharmacology 
-Highly cafinated, has opinions, short like to knit, long straight hair
-Has a crush on Jillian, strong lesbian vibes 
+
+Highly cafinated, has opinions, short, likes to knit, long straight hair
+Has a crush on Jillian, strong lesbian vibes, 
 
 Clare, 26, high school graduate, paper pusher job
+
 Grace's older sister. 7 years older, spent a long time treating Grace like she was a small toy Clare could play with or cuddle. Grace essentially goes limp rather than fight her sister when snatched for a cuddle. Hasn't been told Grace is trans.
 
 Human Clive, 24, Masters in Comp Sci, TA for comp sci classes
+
 confused by all human interaction. York calls them Human Clive and Grace doesn't know it's a joke and calls them that too and it sticks
 
 Sophie, 20, Art (traditional media)
-David's most recent ex-girlfriend
+
+David's most recent ex-girlfriend, known bitch
