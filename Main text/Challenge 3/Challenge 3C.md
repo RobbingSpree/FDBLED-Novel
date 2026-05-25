@@ -46,7 +46,7 @@ Bras can't all be that expensive…right?
 
 ### 2:32pm Saturday - Gavin
 
-Okay, so no. I don't think David is a Machiavelli schemer.
+Okay, so no. I don't think David is a Machiavellian schemer.
 
 No one who knows what they're doing looks as dead as that man does. They still look cute though.
 
@@ -124,7 +124,7 @@ Yeah. I've seen people do that before. Totally normal. See Grace, I can do thing
 
 "So how did you two meet?" I need to pivot attention away from me before I blush so hard I burst into flames.
 
-"I've known Gavin since orientation, he met me a few weeks later cause I saw him lazing in the sun every day and I finally talked to him instead of walking passed and we were fast friends. You were wearing that weird beanie you always wear...wait, how did I not notice you weren't wearing it today? Is this what your hair looks like without it?"
+"I've known Gavin since orientation, he met me a few weeks later cause I saw him lazing in the sun every day and I finally talked to him instead of walking past and we were fast friends. You were wearing that weird beanie you always wear...wait, how did I not notice you weren't wearing it today? Is this what your hair looks like without it?"
 
 Who?
 

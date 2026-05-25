@@ -50,7 +50,7 @@ Fuck!
 
 "Do you mind me asking…" I do, please don't ask. I fear I've forgotten how to talk. My bones have calcified and I my brain is sludge. Why am I so bad with ladies? I've dated women before! "…your padding seems, how do I put this…unnatural? Do you mind if I just…"
 
-She leads me into the change room is was eyeing off and cops a feel.
+She leads me into the change room I was eyeing off and cops a feel.
 
 I am so glad these shorts are low cut jeans. Any weaker material would let my raging erection stand too proud to not cast a shadow and be obvious.
 
@@ -74,7 +74,7 @@ If fake boobs make me feel that good, what would real ones do?
 
 Yearning for the existence of my own boobs really makes me sound like a pervert. The raging boner isn't making a good argument for my case either.
 
-I was too self absorbed and didn't stop the saleswoman from fishing the pads out from the other side of my bra. Before pulling on the bottom of my short and respecting it back where it started.
+I was too self absorbed and didn't stop the saleswoman from fishing the pads out from the other side of my bra. Before pulling on the bottom of my shirt and resetting it back where it started.
 
 "You don't need to use several pads when one will do. Also sports bras won't give you a very good figure." Is she trying to sell me a bra? I've heard enough complaints, I'm never wearing anything with an underwire. Every bra I've handled except this sports bra had one, so that's a no from me captain. Wait…did I give Grace a bra with an underwire? "Instead…" Fuck, she's still going. "You should use something like this!"
 
@@ -92,7 +92,7 @@ Hang on, D-…Amity. Amity. I really do love that name. Do kinda hate that Grace
 
 What was I thinking about before? Why am I inches from this lady's boobs?
 
-Taking a step back I look at the body warmed thing in my hand. It's like a perfectly smooth hand with no fingers. My brain kicks into gear and provides the a non-stop stream of what it would look like to grope my own boobs of they existed.
+Taking a step back I look at the body warmed thing in my hand. It's like a perfectly smooth hand with no fingers. My brain kicks into gear and provides the a non-stop stream of what it would look like to grope my own boobs if they existed.
 
 Thanks brain. That isn't helping.
 
@@ -102,7 +102,7 @@ Actually…what am I supposed to do with this? Did she expect me to use it? I lo
 
 "For me?"
 
-Okay! As soon as I get out of here, in taking Grace to the food court and we're gonna call it a draw. I'm done, my brain is done, that's a wrap. That was clearly a crime. I just crimed. So I'm gonna give this back and head out and wait for Grace and kill myself.
+Okay! As soon as I get out of here, I'm taking Grace to the food court and we're gonna call it a draw. I'm done, my brain is done, that's a wrap. That was clearly a crime. I just crimed. So I'm gonna give this back and head out and wait for Grace and kill myself.
 
 The saleswoman takes the silicone filler and doesn't follow me out of the change room.
 
