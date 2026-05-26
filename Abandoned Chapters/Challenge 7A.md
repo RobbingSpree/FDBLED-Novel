@@ -1,3 +1,7 @@
+---
+tags:
+  - Abandoned
+---
 # Armed With Knowledge but Untrained in it's Use
 
 ### 4:16pm Tuesday - Grace

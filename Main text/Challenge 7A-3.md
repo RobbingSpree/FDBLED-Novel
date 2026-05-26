@@ -1,4 +1,8 @@
-** Wednesday April afternoon - Amity**
+---
+tags:
+  - Challenge_7
+---
+**Wednesday April afternoon - Amity**
 
 "I'm not sitting on that with you."
 
@@ -10,7 +14,7 @@ I'd probably not trust sitting next to me too after how I've behaved recently th
 
 "I don't dislike it. I just can't get comfortable. They're...I dunno..." 
 
-"And you don't want to try it? You tried on a dress with less hassle than this bed." Is it a trauma thing? Am I accidentally forcing her to relive a trauma? What traumas would people have with beds...ohh...what a nieve world I live in where I forgot about rape for a hot minute. "Don't worry, the ones we're actually looking for are over there. Little floor mattresses and foot ons."
+"And you don't want to try it? You tried on a dress with less hassle than this bed." Is it a trauma thing? Am I accidentally forcing her to relive a trauma? What traumas would people have with beds...ohh...what a naive world I live in where I forgot about rape for a hot minute. "Don't worry, the ones we're actually looking for are over there. Little floor mattresses and foot ons."
 
 "Pfft. No. I thought you'd watched anime. It's a futon." Fuuuuck. How is she so cute when she laughs? She's right to fear me. If she's the adorable bunny I want to pet, I'm man: the super predator that all animals fear above all else...I have to stop reading cool sounding research papers before bed, I'm going to say something stupid aloud and regret it.
 
@@ -26,11 +30,11 @@ Okay, she would totally be insulted if I suggested a pet bed...but she clearly j
 
 "Actually, Grace, you know what I don't get about beds?" Let's pivot away from talking about her feelings alien when it comes to beds.
 
-"Do tell, inflict your powerful insights on me." Look at her, adorable and posing like I have the skill to paint her like some kind of delightful french girl.
+"Do tell, inflict your powerful insights on me." Look at her, adorable and posing like I have the skill to paint her like some kind of delightful French girl.
 
 "What does a four poster bed need the posts for? I've seen beds with a bed head before. Do you just get walled in with four posts? Just bed heads in all directions? Or is it an optional thing?"
 
-"That sounds amazing. I would take a bed like that. A ball pit of a bed, an arena of a bed, Thunderdome." How is she so much more energetic and expressive now? Is it cause I've been fighting her to eat two to three meals a day? I know a lack of food can make you lax and exhausted, but that doesn't explain why she's smiling this much. She used to be like a comfortable house cat, even when I saw her out and about. She had a rhythm and flow to how she walked, and I watched her walk the whole way here...which might be why she's wary of me currently, but she almost broke out dancing and skipping a few times. Does she have the auto-fermentation thing? Is she drunk? Have I fed her sandwiches before? 
+"That sounds amazing. I would take a bed like that. A ball pit of a bed, an arena of a bed, Thunderdome. Does it come with a ladder to climb in and out?" How is she so much more energetic and expressive now? Is it cause I've been fighting her to eat two to three meals a day? I know a lack of food can make you lax and exhausted, but that doesn't explain why she's smiling this much. She used to be like a comfortable house cat, even when I saw her out and about. She had a rhythm and flow to how she walked, and I watched her walk the whole way here...which might be why she's wary of me currently, but she almost broke out dancing and skipping a few times. Does she have the auto-fermentation thing? Is she drunk? Have I fed her sandwiches before? 
 
 Why is she such a mystery?
 
@@ -40,7 +44,7 @@ Why is she such a mystery?
 
 "Ohh, hey Amity." Fuck. Why did I say that so loud? And she's coming right this way. What do I do about Grace? She was only fine with coming today cause she was sure she wouldn't run into Flik today.
 
-"I heard you weren't working here today." This was the whole reason we were safe to come to the place that was close by. And not to be rude but she has no sense of personal space, would she have been this close of she sat next to me when I met her before?
+"I heard you weren't working here today." This was the whole reason we were safe to come to the place that was close by. Gosh, she walks with a lot of sway in her hips...I wonder if I could do that? And not to be rude but she has no sense of personal space, would she have been this close if she sat next to me when I met her before?
 
 "You're in luck, cutie. I had to come down and grab a phone charger I left here yesterday. You shopping for something special?" How has she not commented on Grace's terrible hiding spot? 
 
@@ -64,7 +68,7 @@ What was that noise? It sounded like someone got slapped. Is this bed structural
 
 "Where did you go, Grace?" 
 
-"I'm still here you slut." How rude. I'm not a slut...I think.
+"I'm still here, you slut." How rude. I'm not a slut...I think.
 
 "Who's Grace?" Right...yeah...Flik doesn't know that name.
 
@@ -72,11 +76,9 @@ What was that noise? It sounded like someone got slapped. Is this bed structural
 
 "Just tell her I'm another trans girl you know."
 
-"Another? I don't know any."
+"Another? I don't know any to begin with."
 
 "What?" Why are you surprised? You know all my friends.
-
-"What?" 
 
 Grace! What are we doing? What are you doing? What is going on? Why am I the only person who doesn't know what's going on... actually I don't think Flik knows anything either. So only Grace is in control here.
 
@@ -86,22 +88,26 @@ Grace! What are we doing? What are you doing? What is going on? Why am I the onl
 
 "Ohh really?"
 
-"Okay, so when we had that date where you made me steal that bra."
+"Okay, so when we had that date where you made me steal that bra..."
 
 "I didn't MAKE you steal it. We both just kinda forgot."
 
-"That still counts as stealing." Not helping Flik.
-
-"Anywhere, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs."
+"That still counts as stealing." She didn't even say anything about that until now. "Anyway, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs."
 
 "To what end? I wasn't looking for a girlfriend. Wait, I'm not trans."
 
-"Labels aren't important. We can just fool around."
+"Labels aren't important. I know a lot of people who prefer femboy." Who wants to use a category of porn as their identity? "I'll show you how to be a real girl."
 
 "What?"
 
-"Whaaat? It's be fun!" Clearly I tripped when I turned to look at Flik a d the last few minutes have been a concussion dream...do you get dreams from a concussion? "Want me to show you?"
+"Whaaat? It's be fun!" Clearly I tripped when I turned to look at Flik and the last few minutes have been a concussion dream...do you get dreams from a concussion? "Want me to show you?"
 
-"Yeah, so I tried to sick Flik on you cause you were being a bit of a brat. And the only way I could think of was to tell her you were her favourite type of chew toy."
+"Yeah, so I tried to sick Flik on you last time cause you were being a bit of a brat. And the only way I could think of was to tell her you were her favorite type of chew toy."
 
 "Okay, that...that doesn't matter. Didn't we have a- ohh! Ahh! A plan." That is incredibly distracting. "Hands to yourself. Actually, let me get up." 
+
+"Yeah, you're now the bait. Let her have her way with you on another bed or something. I'm hiding under this one and don't want to hear that while I wait for a chance to leg it."
+
+"But what about..."
+
+"We'll do it on Friday or something. I don't care. I just don't want this to get any more complicated. Now go be someone else's problem. Let Flik make you her bitch or something I don't care."

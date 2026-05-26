@@ -1,3 +1,7 @@
+---
+tags:
+  - Abandoned
+---
 # Local Girlfailure Observes and Causes Problems, More as She Develops
 
 ### 4:28pm Tuesday - Grace
