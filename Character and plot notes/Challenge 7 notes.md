@@ -55,3 +55,6 @@ Grace is kinda done with how her life has gotten so difficult and convoluted and
 Amity has the same scene play out and once she gets told off fusses for a bit before deciding she'd be better served by taking Flik up on her offer of a date to make sure she's at least not making things worse
 -cut- 
 Grace is right back where she started with Marissa now asking her to test the beds with her
+
+The above is 7A through to 7C
+For 7D and beyond its the dates the two go on and how they fail to realise why they aren't having as much fun
