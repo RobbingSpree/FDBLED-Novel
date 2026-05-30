@@ -58,3 +58,10 @@ Grace is right back where she started with Marissa now asking her to test the be
 
 The above is 7A through to 7C
 For 7D and beyond its the dates the two go on and how they fail to realise why they aren't having as much fun
+
+It ends with Grace and Amity sitting on the couch at home and trying to lightly probe the other about the date and if things went fine and the person they suspected of being cruel is normal with someone else.
+
+But because both of them think that the other's friend reflects on them they need to say nice things about them. And end up accidentally forcing the other two agree to dating who they went on a date with
+
+Chapters play out as flashbacks to questions and how they choose to answer each one diplomatically 
+Marissa overhears Grace say she is dating her (which Grace doesn't mean and intends to get out of shortly thereafter) And Marissa is far too excited for her to backpedal 
