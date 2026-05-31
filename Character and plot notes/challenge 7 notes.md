@@ -65,3 +65,7 @@ But because both of them think that the other's friend reflects on them they nee
 
 Chapters play out as flashbacks to questions and how they choose to answer each one diplomatically 
 Marissa overhears Grace say she is dating her (which Grace doesn't mean and intends to get out of shortly thereafter) And Marissa is far too excited for her to backpedal 
+
+Finish with a scene similar to the end of challenge 6 but Amity avoids lashing out violently at Grace and instead retreats to her own room and injures herself. But cause she has far less concer for her own well being goes a little overboard 
+It's mentioned by Grace to Jelly in the chat logs as looking like she got hit by a car or several bikes or fell down a flight of stairs she owes money to.
+

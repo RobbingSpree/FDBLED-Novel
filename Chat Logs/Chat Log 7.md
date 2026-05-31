@@ -7,4 +7,16 @@ The bra strap Grace sent a pic of to York before but it's through Grace's arm ho
 
 ***
 
+Grace sends Jillian a question about Amity's sudden splash of bruises up her right side
+It's like she walked into a door that knocked her down a flight of stairs and into an open elevator shaft
+But when I asked she said it was nothing, like not even phased. And I think I'm pretty good at gauging her when she's hiding stuff
+Jill assumes that if it was serious they'd bring it up or go to the hospital 
+But since it didn't seem to stop them cooking lunch it's fine
+Also, that they bruise easily and even getting a solid bump between her own leg and the couch with her arm managed to bruise
+So it probably is something minor
 
+***
+
+Second of the above between grace and Jill
+And it keeps being on their right side
+So they're speculating on whats causing it
