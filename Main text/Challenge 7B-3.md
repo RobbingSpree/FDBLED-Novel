@@ -68,7 +68,7 @@ Not the time, Grace! Get your mind and everyone else's out of the gutter.
 
 "Just tell her I'm another trans girl you know." One of us has to use their brain.
 
-"Another? I don't know any to begin with." 
+"Another? Who was the first?" 
 
 Ohh. She's not trans? She doesn't think I am either.
 
@@ -90,7 +90,7 @@ So...I'm just setting him up to be sexually harassed and maybe forcefemmed...
 
 Fuck him!
 
-This whole thing has just been him pretending to be something while I'm actually vulnerable. 
+This whole thing has just been him pretending to be something I was struggling to be.
 
 He deserves to suffer for once.
 
