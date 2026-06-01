@@ -52,9 +52,9 @@ Wait...why am I just looking with my eyes? I can think. I've got a brain.
 
 **Wednesday April afternoon - Grace** (4 min after prev)
 
-"Ohh, hey. I was sure you'd be busy for longer."
+"Ohh, hey. I was sure you'd be busy for longer. Did you win the tongue wrestle?"
 
-"Where did you end up? Are do we want to give this a second try today or is it a later thing?" They really do have dust for brains sometimes. Just forgetting things right after they're said. 
+"Where did you end up? And do we want to give this a second try today or is it a later thing?" They really do have dust for brains sometimes. Just forgetting things right after they're said. 
 
 "Say hi."
 
@@ -62,7 +62,7 @@ Wait...why am I just looking with my eyes? I can think. I've got a brain.
 
 "Are you letting Mar spoil you?" I'm not letting her do anything. If I HAD money to spare I'd be paying for myself.
 
-"Fuck you, David." I liked Amity as a name for him. "I stole her fair and square. Back off while we flirt." We're not doing that. Why does she think we're doing that? Is she trying to bait him?
+"Fuck you, David." I liked Amity as a name for him. "I stole her fair and square. Back off while we flirt." We're not doing that. Why does she think we're doing that? Is she trying to bait him? "Actually how do you make Grace eat? She's refusing anything food shaped."
 
 "Did you see Flik leave? I'm not going anywhere till I know she's gone." 
 
@@ -70,7 +70,7 @@ Wait...why am I just looking with my eyes? I can think. I've got a brain.
 
 "Yeah yeah. Piss off piss baby."
 
-"Hey." Are they fighting or something? "So you two have something going on?" Cause I kinda want a bed and not to be some imaginary chew toy for you two to fight over.
+"Hey." Are they fighting or something? "So you two have something going on?" Cause I kinda want a bed and not to be some imaginary prize for you two to fight over.
 
 "Nah, that is just how we communicate. A little cruelty to mix with the politeness, can't always be goodie two shoes." I don't think it's much of a mix, this seems pretty diluted on the politeness side. "Don't laugh, you sack of shit." 
 
@@ -102,17 +102,13 @@ I wanted that to happen! That was my literal plan last time. Why does it suck wh
 
 **Wednesday April afternoon - Amity** (after 7B ends, between prev two Amity scenes)
 
-"I'm just saying, you don't know what it's like to be treated like a girl yet."
-
-How are her hands everywhere? Why does she think my ass is some magic button she can squeeze to get results?
-
-"I do have people who treat me like a woman. I-" Eww, that hand was just on my ass. Don't shush me like that.
+"I'm just saying, you don't know what it's like to be treated like a girl yet." How are her hands everywhere? Why does she think my ass is some magic button she can squeeze to get results? "I do have people who treat me like a woman. I-" Eww, that hand was just on my ass. Don't shush me with that.
 
 "Not like how I'll treat you. They just tolerate you." 
 
 What? No! 
 
-Grace thinks I'm cool...I think. I honestly don't know. She definitely hates the idea of kissing me, but that doesn't mean she thinks less of me as a person. But I am the person who forced her to crossdress in exchange for...a floor to sleep on.
+Grace thinks I'm cool...I think. I honestly don't know. She definitely hates the idea of kissing me, but that doesn't mean she thinks less of me as a person. But I am the person who forced her to crossdress in exchange for...a floor to sleep on. Yeah, she hates me.
 
 Marissa...she always seems to have hated me, so she not really treating me any different. If anything she was tolerating my existence before I got into this whole situation. 
 
@@ -134,9 +130,9 @@ Actually...it's been a few minutes, and I've had Flik's undivided attention that
 
 "When are you busy?"
 
-"I've got classes tomorrow and a shift on Friday,  it I can blow it off to hang with a pretty thing like you."
+"I've got classes tomorrow and a shift on Friday, But I can blow it off to hang with a pretty thing like you."
 
-"Well fuck." Good job brain, say that out loud. "Friday is when I'm free too. You promised you'd show me a good time?" It feels wrong to ask someone out under false pretenses. But Grace said we'd try again on Friday. It's not like she likes spending time with me. 
+"Well fuck." Good job brain, say that out loud. "Friday is when I'm free too. You promise you'll show me a good time?" It feels wrong to ask someone out under false pretenses. But Grace said we'd try again on Friday. It's not like she likes spending time with me. 
 
 She can go with anyone, or even alone. 
 
