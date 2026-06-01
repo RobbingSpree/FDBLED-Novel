@@ -1,12 +1,12 @@
 **Friday afternoon Grace**
 
-"So...you look spent. How did it go?"
+"So...you look spent. Do you want a cider? How did it go?"
 
-"Forget about me, did you actually get a chance to test the bed. Can you stop sleeping on the floor? Or do we have to come up with another idea?" 
+"Forget about me, did you actually get a chance to test the bed. Can you stop sleeping on the floor? Or do we have to come up with another idea?" Still took the cider though.
 
-I'm coming to learn these three use this space for relaxing entierly differently. Jill will avoid sitting down and likes to lean against the walls or sit in the corner, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will activly pick spots they don't like to prevent the others from excluding themselves. 
+I'm coming to learn these three use this space for relaxing entierly differently; but also the same. Jill will avoid sitting down and likes to lean against the walls or sit in the corner, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will activly pick spots they don't like to prevent the others from excluding themselves. 
 
-I guess that makes me a proper flatmate to this lot cause I tricked Amity to sit down on the couch with me and trapped her by putting my legs on her lap. She's not allowed to go anywhere until I get some answers.
+I guess that makes me a proper flatmate to this lot cause I tricked Amity to sit down on the couch and trapped her by putting my legs on her lap when I came back with her drink. She's not allowed to go anywhere until I get some answers.
 
 "I'm not going to forget." It was on my mind some of the time. I kinda have no idea if Flik is always as much of a chud as she described herself as. "Was Flik a model date?" The way she describes herself makes me think she's aweful in person. And with how revealing Amity tends to dress on our dates...they weren't dates...
 

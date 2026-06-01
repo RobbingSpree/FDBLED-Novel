@@ -48,11 +48,11 @@ Note to self, change my name in Amity's contacts. Also, steal her phone next tim
 
 "Amity!! What are you doing?" You saw me hide didn't you? Why are you still hanging around?
 
-"Who is it, Amity?" I can barely hear Flik, they must be quite close...are they making out up there? I know Flik tries to move fast, but I expected Amity to have a little self respect. "...attention from your client." Yeah, Flik totally thinks Amity's a call girl.
+"Who is it, Amity?" I can kinda hear Flik, they must be quite close...are they making out up there? I know Flik tries to move fast, but I expected Amity to have a little self respect. "...attention from your client." Yeah, Flik totally thinks Amity's a call girl.
 
-I'm not thinking about paying Amity to do sexual favors for me! Not! 
+I'm not thinking about paying Amity to do sexual favors for me! Not! Not even at all.
 
-I couldn't even afford to...and I won't try to make it a bet thing...was that what she was threatening with her prize of any favour she could ask of me? Sex?
+I couldn't even afford to...and I won't try to make it a bet thing...wait...was that what she was threatening with her prize of any favour she could ask of me? Sex?
 
 Do I want that?
 
@@ -70,7 +70,7 @@ Not the time, Grace! Get your mind and everyone else's out of the gutter.
 
 "Another? I don't know any to begin with." 
 
-Ohh.
+Ohh. She's not trans? She doesn't think I am either.
 
 Okay...
 
@@ -84,9 +84,9 @@ Right. Yeah. No time to think about that.
 
 "I didn't MAKE you steal it. We both just kinda forgot."
 
-"That still counts as stealing. Anyway, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs." And now that's even more true. I know now that David isn't trans.
+"That still counts as stealing. Anyway, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs." But it's just bullying now, cause I know now that David isn't trans.
 
-So I'm just setting him up to be sexually harassed...
+So...I'm just setting him up to be sexually harassed and maybe forcefemmed...
 
 Fuck him!
 
