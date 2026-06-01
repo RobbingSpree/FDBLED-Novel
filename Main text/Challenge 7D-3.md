@@ -2,11 +2,11 @@
 
 "So...you look spent. Do you want a cider? How did it go?"
 
-"Forget about me, did you actually get a chance to test the bed. Can you stop sleeping on the floor? Or do we have to come up with another idea?" Still took the cider though.
+"Forget about me, did you actually get a chance to test the bed. Can you stop sleeping on the floor? Or do we have to come up with another idea?" Still took the cider so it can't have all been bad.
 
-I'm coming to learn these three use this space for relaxing entierly differently; but also the same. Jill will avoid sitting down and likes to lean against the walls or sit in the corner, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will activly pick spots they don't like to prevent the others from excluding themselves. 
+I'm coming to learn these three use this space for relaxing entierly differently; but also the same. Jill will avoid sitting down and wants to lean against the walls or sit in the corner cause she thinks she takes up too much space, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will activly pick spots they don't like to prevent the others from excluding themselves. 
 
-I guess that makes me a proper flatmate to this lot cause I tricked Amity to sit down on the couch and trapped her by putting my legs on her lap when I came back with her drink. She's not allowed to go anywhere until I get some answers.
+I guess that makes me a proper flatmate to this lot cause I tricked Amity into sitting down on the couch and trapped her by putting my legs on her lap when I came back with her drink. She's not allowed to go anywhere until I get some answers.
 
 "I'm not going to forget." It was on my mind some of the time. I kinda have no idea if Flik is always as much of a chud as she described herself as. "Was Flik a model date?" The way she describes herself makes me think she's aweful in person. And with how revealing Amity tends to dress on our dates...they weren't dates...
 
@@ -40,9 +40,9 @@ And maybe it was just a bad day...two days. They were also really inappropriate 
 
 "And?" 
 
-"And it finished fine. What are you supposed to do on a first date? It's too early for kissing, right?"
+"And it finished fine. We did a maccas run and sat about chatting. What are you supposed to do on a first date? It's too early for kissing, right?"
 
-"We kissed." 
+"We kissed, how many dates have we been on?" 
 
 "You did that, and for a bet, and it was to get rid of some guy, and it didn't count, and..." 
 
@@ -74,11 +74,11 @@ Way to act natural Amity. Protest too much maybe.
 
 "The snuggling is what you expect to happen? I'll have you know I sleep like a log." Though maybe less so if this stays this comfortable. If I close my eyes, I could even fall asleep right here, it's a sign of a good bed if you struggle to get out of it according to Clare.
 
-"You're actually more comfortable to cuddle than I thought." How does anyone guess that? Actually, aside from Clare, this might be the longest I've been this close to someone before...I'm way too warm for this.
+"You're actually more comfortable to cuddle than I thought. You look like you're all skin and bones." How does anyone guess that? Actually, aside from Clare, this might be the longest I've been this close to someone before...I'm way too warm for this.
 
 "Okay, time to go then. After all that effort, it turned out to be worth it." Eugh, I can feel how warm that side of me is still. How does anyone keep that up for hours at a time let alone all night?
 
-"Want me to buy it so you have something to sleep on tonight rather than coming back again tomorrow?" I shouldn't say no. I was fine with Amity buying it. Marissa should be the same. It should be fine. It's fine.
+"Want me to buy it so you have something to sleep on tonight rather than coming back again tomorrow?" I shouldn't say no. I was fine with Amity buying it. Marissa should be the same. It should be fine. It's fine. I'm fine.
 
 "Sure, it'll save me driving back here tomorrow after I check Amity hasn't been kidnapped."
 
@@ -94,7 +94,7 @@ Way to act natural Amity. Protest too much maybe.
 
 "Why not? I'll show you mine. See?" 
 
-Ohh, I know where she bought that bra...I can't tell her that.
+Ohh, I know where she bought that bra...I can't tell her that. Is this why she pulled into the botanical gardens car park?
 
 "Just cause you're comfortable, doesn't mean I am too."
 
@@ -104,7 +104,7 @@ Ohh, I know where she bought that bra...I can't tell her that.
 
 "You don't even have the confidence to be out without a socially viable excuse?" That's rude...but true. "What about Gavin? He's abandoned you, hasn't he? A bougening trans woman left to bloom on her own. I bet he's off flirting with some cis woman to spite you?" Okay. Technically, Grace is off spending time with a cis woman. "Was it even a real bet? I bet you just made up some nonsense to give yourself the chance to be a real girl-"
 
-"I'm not a real girl!"
+"I'm not a real girl!" That's the fucking whole point.
 
 "And I'm saying I can make you feel like you are one."
 
