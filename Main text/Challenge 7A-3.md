@@ -76,7 +76,7 @@ What was that noise? It sounded like someone got slapped. Is this bed structural
 
 "Just tell her I'm another trans girl you know."
 
-"Another? I haven't seen a first yet."
+"Another? Who was the first?"
 
 "What?" Why are you surprised? You know all my friends.
 
