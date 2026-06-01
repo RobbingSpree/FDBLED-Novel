@@ -16,7 +16,7 @@ I'd probably not trust sitting next to me too after how I've behaved recently th
 
 "And you don't want to try it? You tried on a dress with less hassle than this bed." Is it a trauma thing? Am I accidentally forcing her to relive a trauma? What traumas would people have with beds...ohh...what a naive world I live in where I forgot about rape for a hot minute. "Don't worry, the ones we're actually looking for are over there. Little floor mattresses and foot ons."
 
-"Pfft. No. I thought you'd watched anime. It's a futon." Fuuuuck. How is she so cute when she laughs? She's right to fear me. If she's the adorable bunny I want to pet, I'm man: the super predator that all animals fear above all else...I have to stop reading cool sounding research papers before bed, I'm going to say something stupid aloud and regret it.
+"Pfft. No. I thought you'd watched anime. It's a futon." Fuuuuck. How is she so cute when she laughs? She's right to fear me. If she's the adorable bunny I want to pet, I'm man: the super predator that animals fear above all else...I have to stop reading cool sounding research papers before bed, I'm going to say something stupid aloud and regret it.
 
 "Here!" You don't need to shout Amity, you can be calm and normal. You're just talking to Grace. "I'll get up and you give it a lay down. I'll stand over here, give you some space." Real subtle, she's not going to catch on how you're acting at all. 
 
@@ -44,9 +44,9 @@ Why is she such a mystery?
 
 "Ohh, hey Amity." Fuck. Why did I say that so loud? And she's coming right this way. What do I do about Grace? She was only fine with coming today cause she was sure she wouldn't run into Flik today.
 
-"I heard you weren't working here today." This was the whole reason we were safe to come to the place that was close by. Gosh, she walks with a lot of sway in her hips...I wonder if I could do that? And not to be rude but she has no sense of personal space, would she have been this close if she sat next to me when I met her before?
+"I heard you weren't working here today." This was the whole reason we were safe to come to the place that was close by. Gosh, she walks with a lot of sway in her hips...I wonder if I could do that? And not to be rude but she has no sense of personal space, would she have been this close if she sat next to me when I met her last time?
 
-"You're in luck, cutie. I had to come down and grab a phone charger I left here yesterday. You shopping for something special?" How has she not commented on Grace's terrible hiding spot? 
+"You're in luck, cutie. I had to come down and grab a phone charger I left here yesterday. You shopping for something special? And in my department?" How has she not commented on Grace's terrible hiding spot? 
 
 Wait...where did Grace go? She was here a literal second ago.
 
@@ -76,7 +76,7 @@ What was that noise? It sounded like someone got slapped. Is this bed structural
 
 "Just tell her I'm another trans girl you know."
 
-"Another? I don't know any to begin with."
+"Another? I haven't seen a first yet."
 
 "What?" Why are you surprised? You know all my friends.
 
@@ -92,15 +92,15 @@ Grace! What are we doing? What are you doing? What is going on? Why am I the onl
 
 "I didn't MAKE you steal it. We both just kinda forgot."
 
-"That still counts as stealing." She didn't even say anything about that until now. "Anyway, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs."
+"That still counts as stealing." She hasn't said anything about that until now. Why is now when she brings it up? "Anyway, I told Flik you were a newly out trans girl to get her to flirt with you. She has a thing for freshly cracked eggs."
 
-"To what end? I wasn't looking for a girlfriend. Wait, I'm not trans."
+"To what end? Wait, I'm not trans." A trans girl wouldn't be doing all this nonsense just to pretend to be a girl.
 
 "Labels aren't important. I know a lot of people who prefer femboy." Who wants to use a category of porn as their identity? "I'll show you how to be a real girl."
 
 "What?"
 
-"Whaaat? It's be fun!" Clearly I tripped when I turned to look at Flik and the last few minutes have been a concussion dream...do you get dreams from a concussion? "Want me to show you?"
+"Whaaat? It'll be fun!" Clearly I tripped when I turned to look at Flik and the last few minutes have been a concussion dream...do you get dreams from a concussion? "Want me to show you?"
 
 "Yeah, so I tried to sick Flik on you last time cause you were being a bit of a brat. And the only way I could think of was to tell her you were her favorite type of chew toy."
 
