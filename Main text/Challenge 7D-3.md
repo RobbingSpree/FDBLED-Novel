@@ -4,11 +4,11 @@
 
 "Forget about me, did you actually get a chance to test the bed. Can you stop sleeping on the floor? Or do we have to come up with another idea?" Still took the cider so it can't have all been bad.
 
-I'm coming to learn these three use this space for relaxing entierly differently; but also the same. Jill will avoid sitting down and wants to lean against the walls or sit in the corner cause she thinks she takes up too much space, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will activly pick spots they don't like to prevent the others from excluding themselves. 
+I'm coming to learn these three use this space for relaxing entirely differently; but also the same. Jill will avoid sitting down and wants to lean against the walls or sit in the corner cause she thinks she takes up too much space, Marissa wants to sit on the couch with someone else as long as it's not Amity, and Amity will take the small seat unless it's taken and then she'll hide in the kitchen and talk from there if she's midway between fleeing to her room and staying involved. And all three of them will actively pick spots they don't like to prevent the others from excluding themselves. 
 
 I guess that makes me a proper flatmate to this lot cause I tricked Amity into sitting down on the couch and trapped her by putting my legs on her lap when I came back with her drink. She's not allowed to go anywhere until I get some answers.
 
-"I'm not going to forget." It was on my mind some of the time. I kinda have no idea if Flik is always as much of a chud as she described herself as. "Was Flik a model date?" The way she describes herself makes me think she's aweful in person. And with how revealing Amity tends to dress on our dates...they weren't dates...
+"I'm not going to forget." It was on my mind some of the time. I kinda have no idea if Flik is always as much of a chud as she described herself as. "Was Flik a model date?" The way she describes herself makes me think she's awful in person. And with how revealing Amity tends to dress on our dates...they weren't dates...
 
 "Well, she apparently decided it was a drive and chat date. It started off fine..."
 
@@ -58,13 +58,13 @@ Way to act natural Amity. Protest too much maybe.
 
 "I'm on your side on this, I expected you to spend like a day forced to dress like a girl. Not five months. Five months is a bit excessive."
 
-"A bit? Actually, speaking of excessive: the lengths I went to to give you a chance to try the bed. Was it a good bed? Can we go buy you one? I did some online shopping for some extra pillows, so if not we can make the floor a little more accomodating to your spine at least."
+"A bit? Actually, speaking of excessive: the lengths I went to to give you a chance to try the bed. Was it a good bed? Can we go buy you one? I did some online shopping for some extra pillows, so if not we can make the floor a little more accommodating to your spine at least."
 
 ***
 
 **11:39am Friday - Grace**
 
-"This is amazing" I didn't even know the floor could be this comfrotable. And I don't feel like I'm being sucked into the depths of a matress. Gotta hand it to Amity, she knows her stuff...for some reason. Who would even think of this?
+"This is amazing" I didn't even know the floor could be this comfortable. And I don't feel like I'm being sucked into the depths of a mattress. Gotta hand it to Amity, she knows her stuff...for some reason. Who would even think of this?
 
 "Scoot over, I wanna give it a go. It can't be that good." Marissa has been fine until now. Sure, she insisted we hold hands the whole time. But I've seen her lose a mug on a mostly empty table, keeping a hold of her is better than having to go and look for her later once she's already lost.
 
@@ -90,7 +90,7 @@ Way to act natural Amity. Protest too much maybe.
 
 **11:07am Friday - Amity**
 
-"I'm not showing you my underware. I'm not showing anyone my underware." 
+"I'm not showing you my underwear. I'm not showing anyone my underwear." 
 
 "Why not? I'll show you mine. See?" 
 
@@ -98,11 +98,11 @@ Ohh, I know where she bought that bra...I can't tell her that. Is this why she p
 
 "Just cause you're comfortable, doesn't mean I am too."
 
-"Is it cause you think you're playing pretend and showing off what's underneath your poorly crafted fasade scares you?" Excuse me? Who's poorly crafted? It was so hard to find high waisted pants that fit me. 
+"Is it cause you think you're playing pretend and showing off what's underneath your poorly crafted facade scares you?" Excuse me? Who's poorly crafted? It was so hard to find high waisted pants that fit me. 
 
 "I'm not...I'm dressing like this for a bet."
 
-"You don't even have the confidence to be out without a socially viable excuse?" That's rude...but true. "What about Gavin? He's abandoned you, hasn't he? A bougening trans woman left to bloom on her own. I bet he's off flirting with some cis woman to spite you?" Okay. Technically, Grace is off spending time with a cis woman. "Was it even a real bet? I bet you just made up some nonsense to give yourself the chance to be a real girl-"
+"You don't even have the confidence to be out without a socially viable excuse?" That's rude...but true. "What about Gavin? He's abandoned you, hasn't he? A burgeoning trans woman left to bloom on her own. I bet he's off flirting with some cis woman to spite you?" Okay. Technically, Grace is off spending time with a cis woman. "Was it even a real bet? I bet you just made up some nonsense to give yourself the chance to be a real girl-"
 
 "I'm not a real girl!" That's the fucking whole point.
 
