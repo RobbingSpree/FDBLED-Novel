@@ -1,4 +1,4 @@
-**Friday afternoon Grace**
+**5:18pm Friday - Grace**
 
 "So...you look spent. Do you want a cider? How did it go?"
 
@@ -14,7 +14,7 @@ I guess that makes me a proper flatmate to this lot cause I tricked Amity into s
 
 ***
 
-**Earlier Friday - Amity**
+**10:37am Friday - Amity**
 
 "This is a poor showing. What are you even wearing?" This isn't living up to what she described at all. "What is this? Pants and a shirt? What happened to all the skin you were showing off the last two times I saw you? Are you even wearing a bra?"
 
@@ -32,7 +32,7 @@ I guess that makes me a proper flatmate to this lot cause I tricked Amity into s
 
 ***
 
-**Friday afternoon - Amity**
+**5:18pm Friday - Amity**
 
 I can't tell her it was a train wreck. Flik is her friend. I can't say her friend was a menace the whole date. What does that say about her for keeping company like that? Grace has been really careful about introducing me to people she's friends with, I can't say anything that'd make it seem like I think all her friends are like this, or worse that she's just as bad.
 
@@ -62,7 +62,7 @@ Way to act natural Amity. Protest too much maybe.
 
 ***
 
-**Earlier Friday - Grace**
+**11:39am Friday - Grace**
 
 "This is amazing" I didn't even know the floor could be this comfrotable. And I don't feel like I'm being sucked into the depths of a matress. Gotta hand it to Amity, she knows her stuff...for some reason. Who would even think of this?
 
@@ -88,7 +88,7 @@ Way to act natural Amity. Protest too much maybe.
 
 ***
 
-**Earlier Friday - Amity**
+**11:07am Friday - Amity**
 
 "I'm not showing you my underware. I'm not showing anyone my underware." 
 
