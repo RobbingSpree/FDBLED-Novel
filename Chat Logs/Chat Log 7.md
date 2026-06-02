@@ -1,3 +1,13 @@
+Grace sending Amity a concerned message at butfuck o clock on Friday asking if she's dead in there
+
+Also asks if she resents being made to dress like a girl for 5 months
+
+***
+
+Marissa telling grace when their next date is and asking if she has any nicer outfits or if she's only got relaxed fits
+
+***
+
 York sends Grace a message asking about the new girl and if Grace knows her 
 Grace says she didn't pay much attention to other students
 York sends a pic
@@ -20,3 +30,12 @@ So it probably is something minor
 Second of the above between grace and Jill
 And it keeps being on their right side
 So they're speculating on whats causing it
+
+***
+
+Flik asking Amity for another date
+
+***
+
+Jillian inviting a mysterious other person to go to the gym with her cause she has "so much" to talk about
+
