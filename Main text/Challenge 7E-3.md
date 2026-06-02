@@ -24,7 +24,7 @@ No that makes no sense, how would someone do all that stuff we did and not work 
 
 "Hey, get back here, you brat." Look where your stompy little legs get you, tall ladies will hunt you for sport. "Explain yourself, Amity!" Yelling isn't going to help, try to calm the fuck down...and also don't breath directly into her face, that's rude. 
 
-Aaaaaand now we're even. We've now both seen the other cry for seemingly no reason. Does this apparetment have a case of black-mold-that-makes-you-cry?
+Aaaaaand now we're even. We've now both seen the other cry for seemingly no reason. Does this apartment have a case of black-mold-that-makes-you-cry?
 
 I'm not letting her leave, she can cry in front of me like I did her. If she's hiding something fucked up that Flik did, I'm going to find out.
 
@@ -48,7 +48,7 @@ I'm not letting her leave, she can cry in front of me like I did her. If she's h
 
 "What?"
 
-"How do I say this delicately?" How did you drink a glass of nothing but eggs and milk? "I can't...she was beating Amity. So I threated to do the same to her, and then they mysteriously broke up the following week. So who's this new girl?"
+"How do I say this delicately?" How did you drink a glass of nothing but eggs and milk? "I can't...she was beating Amity. So I threatened to do the same to her, and then they mysteriously broke up the following week. So who's this new girl?"
 
 ***
 
@@ -90,7 +90,7 @@ If. I. Just. Get. All. These. Emotions. Out. By. Hitting. Myself. Instead. No. O
 
 "I thought you were dating. Amity was so happy any time after you two hung out."
 
-"Those weren't dates. We were just goofing off. And if organic chemistry is anything as dry and dull as compsci can be, she'd be that happy playing with anyone." Can't get too down on myself, I gotta be somewhat upbeat to attack Amity and not yell at her when she comes back out. "If those counted as dates then I went on a date with Marissa today."
+"Those weren't dates. We were just goofing off. And if organic chemistry is anything as dry and dull as comp-sci can be, she'd be that happy playing with anyone." Can't get too down on myself, I gotta be somewhat upbeat to attack Amity and not yell at her when she comes back out. "If those counted as dates then I went on a date with Marissa today."
 
 "Ohh, so what did that entail?" Wow, she lit up. Does she like gossip or something.
 
