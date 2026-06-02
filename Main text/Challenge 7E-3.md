@@ -55,3 +55,47 @@ Fuck. I can't breath. I can't breath. I can't breath.
 "Amity, get back out here. You have to eat sometime, I can wait all day. And if you don't I'm gonna eat every one of your ciders."
 
 She hates me. Who wouldn't? I hate me. 
+
+She replaced me with Marissa and she thinks I'm a slut and probably that I tried to assault her before. And I almost hit her again just now. She pinned me to the wall and I just panicked. Why do I always feel like I have to hit something?
+
+There's only one thing that should be hit. 
+
+Me.
+
+If. I. Just. Get. All. These. Emotions. Out. By. Hitting. Myself. Instead. No. One. Needs. To. Know.
+
+"That hurts. But it's nothing. This is nothing. I'm nothing. What did Grace say before? I have to eat? No. I'll just go without. Fucked up things like me don't need food. Don't deserve it. If I feel hungry, I'll just give myself a few of these! Ow. And if I have a new bruise to worry about, I won't be hungry."
+
+***
+
+**Friday Afternoon - Grace**
+
+"Huh, Amity always said those bruises were from a walk she went on where she slipped on some wet rocks. But they did take a while to go away. I can't imagine her letting someone else hurt her."
+
+"Well, all I do is listen in on stuff. I'm a bit too shy to ask people things before they become problems."
+
+"You're too shy? You look like you could bench the countertop without issue. Was working out a coping mechanism?" 
+
+"No, I just made a few friends who went to the gym and went with them so we could hang out more...and it kinda got out of hand."
+
+"Well you look great. I feel like I know where Amity's stamina for cooking big meals came from if you've been working out the whole time you lived together."
+
+"Yeah, she's a bit too much of a people pleaser that one. So if Amity's dating someone else are you gonna give up?"
+
+"We weren't a thing. She doesn't see me that way. I've no idea how she sees me actually."
+
+"I thought you were dating. Amity was so happy any time you two hung out."
+
+"Those weren't dates. We were just goofing off. And if organic chemistry is anything as dry and dull as compsci can be, she'd be that happy playing with anyone." Can't get too down on myself, I gotta be somewhat upbeat to attack Amity and not yell at her when she comes back out. "If those counted as dates then I went on a date with Marissa today."
+
+"Ohh, so what did that entail?" Wow, she lit up. Does she like gossip or something.
+
+"We got into a bed together if I'm being crass, and held hands and talked. She's cute-"
+
+"You think I'm cute?!" Who sneaks in the door only to yell at the top of their lungs. "You hear that Jelly? Grace thinks I'm cute, she might just snatch me up." I didn't say that. I was going to say she's cute when she's quiet. Way to prove my point. "Can we go on another date? There's a film I wanted to see, but Jelly's too strict on her studying and won't make time."
+
+"I don't have a job still, so if I can pay you back somehow?"
+
+"Yes!! You drive us there, cause I hate catching the bus, and I'll pay for you, my love." Don't make me regret this.
+
+"Sure, just let me know when."
