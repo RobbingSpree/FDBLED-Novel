@@ -40,11 +40,12 @@ Progress:
 | 6       | D    | Written   | 2037       | 37177            | Worse Than Death                                             |
 | 6       | E    | Written   | 634        | 37811            | Mad, Glad and Full of Sad                                    |
 | 6       | Chat | Written   | 1408       | 39219            |                                                              |
-| 7       | A    | Writing   | 955        |                  | We Can't All Be Lost                                         |
-| 7       | B    | Writing   | 954        |                  |                                                              |
-| 7       | C    |           |            |                  |                                                              |
-|         |      |           |            |                  |                                                              |
-
+| 7       | A    | Written   |            |                  | Girls don't like me                                          |
+| 7       | B    | Written   |            |                  | Fumbling the baddie                                          |
+| 7       | C    | Written   |            |                  | Have you considdered fucking off?                            |
+| 7       | D    | Written   |            |                  | Reconveining                                                 |
+| 7       | E    | Written   |            |                  | Yelling and screaming until I throw up                       |
+| 7       | Chat | Writing   |            |                  |                                                              |
 
 Titles dropped:
 Armed With Knowledge but Untrained in it's Use
