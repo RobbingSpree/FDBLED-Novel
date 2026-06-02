@@ -1,4 +1,4 @@
-**Wednesday April afternoon - Grace** (after 7B ends)
+**Wednesday 4:45pm - Grace**
 
 "Fuck him. He can go fuck himself." Utter lump of wasted space and empty head. He deserves worse than getting mistaken for someone like me.
 
@@ -22,13 +22,13 @@
 
 ***
 
-**Wednesday April afternoon - Amity** (after 7B ends)
+**Wednesday 4:36pm - Amity** 
 
 "No I don't actually...hang on...mmmfh...right yeah...but...ahh...no..."
 
 ***
 
-**Wednesday April afternoon - Amity** (after 7B ends plus 15 minutes, just after 7C starts)
+**Wednesday 4:49pm - Amity** 
 
 "Okay...so I had to agree to a date. But that's fine. I can go on a date. I'm normal...wish she hadn't latched onto calling me a femboy. But it's just a one off thing. I can put up with it for the sake of bailing Grace out." 
 
@@ -50,7 +50,7 @@ Wait...why am I just looking with my eyes? I can think. I've got a brain.
 
 ***
 
-**Wednesday April afternoon - Grace** (4 min after prev)
+**Wednesday 4:49pm - Grace** 
 
 "Ohh, hey. I was sure you'd be busy for longer. Did you win the tongue wrestle?"
 
@@ -100,13 +100,13 @@ I wanted that to happen! That was my literal plan last time. Why does it suck wh
 
 ***
 
-**Wednesday April afternoon - Amity** (after 7B ends, between prev two Amity scenes)
+**Wednesday 4:41pm - Amity**
 
 "I'm just saying, you don't know what it's like to be treated like a girl yet." How are her hands everywhere? Why does she think my ass is some magic button she can squeeze to get results? "I do have people who treat me like a woman. I-" Eww, that hand was just on my ass. Don't shush me with that.
 
 "Not like how I'll treat you. They just tolerate you." 
 
-What? No! 
+What? No! Lots of people...I mean...
 
 Grace thinks I'm cool...I think. I honestly don't know. She definitely hates the idea of kissing me, but that doesn't mean she thinks less of me as a person. But I am the person who forced her to crossdress in exchange for...a floor to sleep on. Yeah, she hates me.
 
