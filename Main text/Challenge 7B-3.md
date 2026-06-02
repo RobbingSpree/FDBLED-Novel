@@ -1,4 +1,4 @@
-**Wednesday April afternoon - Grace** (after 7A starts)
+**Wednesday 4:32pm - Grace**
 
 "Hang on...Flik?"
 
@@ -10,7 +10,7 @@ Please.  I'm projecting my thoughts directly into your mind: don't turn around.
 
 "Flik?" Oh all the times for you to be no-thoughts-brain-empty.
 
-Hiding behind the posts we were just laughing about's not going to work if she actualy comes over. 
+Hiding behind the posts we were just laughing about is not going to work if she actually comes over. 
 
 Fine.
 
@@ -34,7 +34,7 @@ Wait. I can call Amity.
 
 Did...did Amity just say she's a hooker? And she was mad at me for thinking of making porn? No time for facepalms and cringe. Gotta call Amity.
 
-"...buy some of your time...?" Flik's now paying prostitues she meets in the store. If I wasn't sure Amity was just putting her foot in her mouth I would be worried they'd try to bone on the bed above me.
+"...buy some of your time...?" Flik's now paying prostitutes she meets in the store. If I wasn't sure Amity was just putting her foot in her mouth I would be worried they'd try to bone on the bed above me.
 
 FUCK!!
 
