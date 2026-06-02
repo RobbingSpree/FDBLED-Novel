@@ -1,6 +1,6 @@
-**Friday Afternoon - Grace**
+**5:20pm Friday - Grace**
 
-"Marissa volunteered to buy the bed, so if you want to come to my room and...give it a try...cause you didn't get a chance before." Amity looks kinda on edge. I might have gotten a bit angry at them on Wednesday and said some mean things, and didn't get a chance to talk to them yesterday to clear what they said up...
+"Marissa volunteered to buy the bed, so if you want to come to my room and...give it a try...cause you didn't get a chance before." Amity looks kinda on edge. I might have gotten a bit angry at them on Wednesday and said some mean things, and didn't get a chance to talk to them yesterday to clear what they said up... "But we got it all done despite all you did..."
 
 Maybe I just misunderstood. 
 
@@ -18,27 +18,31 @@ No that makes no sense, how would someone do all that stuff we did and not work 
 
 "I should go." Wow, she normally nurses a cider for ages. That thing vanished. "I've got a lab to prep for."
 
-"That can wait, I want a report on your date." All you've said was that it was fine twice.
+"That can wait, I want a report on your date." All you've said was that it was fine twice. "Tell me more-"
 
 "If Flik said anything it's my fault. If anything goes wrong it's my fault. She was fine, I'm the fuck up." 
 
-"Hey, get back here, you brat." Look where your stompy little legs get you, tall ladies will hunt you for sport. "Explain yourself, Amity!" Yelling isn't going to help. And now we're even. I'm not letting her leave, she can cry in front of me like I did her.
+"Hey, get back here, you brat." Look where your stompy little legs get you, tall ladies will hunt you for sport. "Explain yourself, Amity!" Yelling isn't going to help, try to calm the fuck down...and also don't breath directly into her face, that's rude. 
+
+Aaaaaand now we're even. We've now both seen the other cry for seemingly no reason. Does this apparetment have a case of black-mold-that-makes-you-cry?
+
+I'm not letting her leave, she can cry in front of me like I did her. If she's hiding something fucked up that Flik did, I'm going to find out.
 
 "Are you two gonna make out?" 
 
-"What? No, Jill that's not helping." Fuck she escaped. "Amity, get back out here. You have to eat sometime, I can wait all day. And if you don't I'm gonna eat every one of your ciders."
+"What? No, Jill that's not helping." Fuck she escaped. "Amity, get back out here. You have to eat something too, it can't just be cider." She constantly complains about how bad her hangovers get if she doesn't eat. "I can wait all day. And if you don't I'm gonna eat every one of your ciders."
 
-"Ohh, are you two fighting?" 
+"Ohh, are you two fighting?" Don't sound excited about that.
 
 "Not like Amity and Mar do, no. She had a date and I don't exactly trust the person she went on a date with." As long as I keep an eye on the hall, she won't get past me.
 
 "Wow, I didn't think she'd go on a date for a few more months. She still cries herself to sleep ya know."
 
-"What?"
+"What?" Should...should she be telling me this?
 
 "Amity and I share a wall, so if she has a rough time at night when everything is quiet I hear it."
 
-"So you were against her dating cause you didn't want to hear the sex?" Is it weird that she's cracking eggs into a cup while maintaining eye contact? She's sure making it weird.
+"So you were against her dating cause you didn't want to hear the sex?" Is it weird that she's cracking eggs into a cup while maintaining eye contact? She's sure making it weird if that was her goal.
 
 "Nah, I don't want to have to threaten another lady to stop leaving marks on my friends."
 
@@ -48,7 +52,7 @@ No that makes no sense, how would someone do all that stuff we did and not work 
 
 ***
 
-**Friday Afternoon - Amity**
+**5:21pm Friday - Amity**
 
 Fuck. I can't breath. I can't breath. I can't breath. 
 
@@ -64,27 +68,27 @@ Me.
 
 If. I. Just. Get. All. These. Emotions. Out. By. Hitting. Myself. Instead. No. One. Needs. To. Know.
 
-"That hurts. But it's nothing. This is nothing. I'm nothing. What did Grace say before? I have to eat? No. I'll just go without. Fucked up things like me don't need food. Don't deserve it. If I feel hungry, I'll just give myself a few of these! Ow. And if I have a new bruise to worry about, I won't be hungry."
+"That hurts. But it's nothing. This is nothing. I'm nothing. What did Grace say before? I have to eat? No. I'll just go without. Fucked up things like me don't need food. Don't deserve it. If I feel hungry, I'll just give myself a few of these! Ow. And if I have a new bruise to worry about, I won't be hungry. My body can only do one thing at a time, I won't give it a chance to think about hunger."
 
 ***
 
-**Friday Afternoon - Grace**
+**5:23pm Friday - Grace**
 
 "Huh, Amity always said those bruises were from a walk she went on where she slipped on some wet rocks. But they did take a while to go away. I can't imagine her letting someone else hurt her."
 
 "Well, all I do is listen in on stuff. I'm a bit too shy to ask people things before they become problems."
 
-"You're too shy? You look like you could bench the countertop without issue. Was working out a coping mechanism?" 
+"You're too shy? You look like you could bench the countertop I'm sitting on without issue. Was working out a coping mechanism that got away from you?" 
 
-"No, I just made a few friends who went to the gym and went with them so we could hang out more...and it kinda got out of hand."
+"No, I just made a few friends who went to the gym and went with them so we could hang out more...and it kinda sorta got out of hand and became a habit."
 
 "Well you look great. I feel like I know where Amity's stamina for cooking big meals came from if you've been working out the whole time you lived together."
 
 "Yeah, she's a bit too much of a people pleaser that one. So if Amity's dating someone else are you gonna give up?"
 
-"We weren't a thing. She doesn't see me that way. I've no idea how she sees me actually."
+"What? We weren't a thing. She doesn't see me that way. I've no idea how she sees me actually. Her running off just now was yet another thing about her I can't fathom."
 
-"I thought you were dating. Amity was so happy any time you two hung out."
+"I thought you were dating. Amity was so happy any time after you two hung out."
 
 "Those weren't dates. We were just goofing off. And if organic chemistry is anything as dry and dull as compsci can be, she'd be that happy playing with anyone." Can't get too down on myself, I gotta be somewhat upbeat to attack Amity and not yell at her when she comes back out. "If those counted as dates then I went on a date with Marissa today."
 
@@ -96,6 +100,6 @@ If. I. Just. Get. All. These. Emotions. Out. By. Hitting. Myself. Instead. No. O
 
 "I don't have a job still, so if I can pay you back somehow?"
 
-"Yes!! You drive us there, cause I hate catching the bus, and I'll pay for you, my love." Don't make me regret this.
+"Yes!! You drive us there, cause I hate catching the bus, and I'll pay for you, my love."
 
-"Sure, just let me know when."
+"Sure, just let me know when." Don't make me regret this.
