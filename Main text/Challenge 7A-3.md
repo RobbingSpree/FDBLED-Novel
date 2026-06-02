@@ -2,7 +2,7 @@
 tags:
   - Challenge_7
 ---
-**Wednesday April afternoon - Amity**
+**Wednesday 4:28pm - Amity**
 
 "I'm not sitting on that with you."
 
