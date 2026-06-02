@@ -27,6 +27,10 @@ So it probably is something minor
 
 ***
 
+Jill and Mar concene about the seemingly sudden emotional damage both Grace and Amity have been suffering and how it's likely their fault. Mar is keen about it, Jill worries about their grades and insists they not do things to make them too unstaable when going to class or finishing the day to do study.
+
+***
+
 Second of the above between grace and Jill
 And it keeps being on their right side
 So they're speculating on whats causing it
