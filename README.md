@@ -43,7 +43,7 @@ Progress:
 | 7       | A    | Written   |            |                  | Girls don't like me                                          |
 | 7       | B    | Written   |            |                  | Fumbling the baddie                                          |
 | 7       | C    | Written   |            |                  | Have you considdered fucking off?                            |
-| 7       | D    | Written   |            |                  | Reconveining                                                 |
+| 7       | D    | Written   |            |                  | Reconvening                                                  |
 | 7       | E    | Written   |            |                  | Yelling and screaming until I throw up                       |
 | 7       | Chat | Writing   |            |                  |                                                              |
 
