@@ -1,3 +1,9 @@
+Marissa asking an unknown person if there's anything she should avoid saying to a black girl she's trying to woo on their first date.
+Then her saying she bets she can push her further than she thinks she's comfortable and get her to like it.
+
+***
+
+
 Grace sending Amity a concerned message at butfuck o clock on Friday asking if she's dead in there
 
 Also asks if she resents being made to dress like a girl for 5 months
