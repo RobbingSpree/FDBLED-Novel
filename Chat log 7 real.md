@@ -29,6 +29,12 @@ Also sorry I just made a mess thinking I could slide toast under your door
 
 ***
 
+**G_Money**
+something went wrong and i can't host Sunday dinner this week
+can you tell everyone else?
+
+***
+
 **Marissa changed display name to respectable_lady**
 
 **Marissa**
@@ -141,4 +147,28 @@ her door is very easy to pick the lock on
 **5ml_a_week**
 I know, i think i made them cry
 i can finally win fights with them now
+didnt even have to throw my shoe at her
+just said she's someone i tolerate rather than enjoy talking to
+I'm so good at everything 
+
+**Jelly**
+don't get too extreme with your flirting
+if this starts to get them worse marks in their subjects then we'll have to rethink this
+
+**5ml_a_week**
+eww, who'd flirt with a man
+
+**Jelly**
+she's a woman, the hormones make that doubly true
+
+**5ml_a_week**
+nah, that thing is still a man
+getting estrogen might make him soft and torment him with boobs
+but that's still a man and i hate him
+
+***
+(two week jump)
+**Grace changed name to detective**
+**detective**
+bruises are supposed to go away 
 
