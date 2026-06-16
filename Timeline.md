@@ -26,11 +26,12 @@ Gavin gets evicted and their told to move out by Sunday
 
 Wednesday 21st April
 Gavin and David both get invited to Blake's party
-Gavin organised makeup for the party 
+David organised makeup for the party 
 
 
 Friday 23rd April
 Party time
+Challenge 4 happens
 Gavin tells Aaron and Felicity they're moving home tomorrow 
 Gavin spots Amity and walks over cause they seem in distress 
 Amity is mad she went from back to back dates with Grace to not seeing her at all
@@ -45,11 +46,36 @@ Grace gets more clothes
 Grace starts picking a new username
 
 Sunday 25th April
+Challenge 5
 Grace meets Marissa and Jillian
 Amity is trapped as Amity for the next 5 months
 Grace concludes she's a girl now
 Amity and Grace both get injected with their first dose of HRT
 
-Monday 26th
+Monday 26th April
+Challenge 6
 Amity finds Grace trying to set up a camera to do some only fans for money
-challenge becomes who can thirst trap the most people on reddit
+gets her on HECS and talks her into changing her name with the Uni
+Amity also changes her name with the uni to egg Grace on
+
+Tuesday 27th April
+Grace invites Amity to go check floor beds
+
+Wednesday 28th April
+Challenge 7 happens
+Amity gets accosted by Flik
+Grace gets accosted by Marissa
+Grace gets mad at Amity for them being dense as fuck about knowing trans people
+
+Friday 30th April 
+challenge 7 continues
+everyone has bad dates
+reconvenes at home
+Amity and Grace have another fight
+Grace starts self harming again
+
+Friday 7th May
+Grace Mel second date
+
+Friday 14th May
+Challenge 8 occurs

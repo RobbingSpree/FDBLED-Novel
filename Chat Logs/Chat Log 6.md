@@ -1,4 +1,4 @@
-Monday 25th April 6:55am
+Monday 26th April 6:55am
 
 5mL_weekly
 I have so much to update you on
@@ -70,7 +70,7 @@ Good luck on the test
 
 ***
 
-Monday 25th April 5:05pm
+Monday 26th April 5:05pm
 
 Ground_Floor()
 Hey, York. 
@@ -184,7 +184,7 @@ did you die in the last 70 minutes?
 
 ***
 
-Monday 25th April 2:07pm
+Monday 26th April 2:07pm
 
 *David has been renamed Amity*
 
@@ -287,7 +287,7 @@ Cute
 
 ***
 
-Monday 25th April 6:17pm
+Monday 26th April 6:17pm
 
 David has been renamed Bitch
 David has been renamed Amity(bitch)
@@ -400,7 +400,7 @@ That makes sense
 
 ***
 
-Tuesday 26th April 9:37am
+Tuesday 27th April 9:37am
 
 Amity
 What time do you finish classes tomorrow?
