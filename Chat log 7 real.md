@@ -3,13 +3,28 @@ Thursday 29th April 3:12pm
 **Marissa_who_kiss_her**
 Hey... apropos of nothing, what's the one thing to not say to a black girl on a first date?
 I'm trying to make a good first impression 
+
+3:14pm
+
 Even if it's not her first impression of me
+
+3:15pm
+
 Cause she moved in with me last week
 and she's such a cutie
+
+3:18pm
+
 and I think I can flirt with her to make the flatmate I'm actually crushing on me jealous
 getting to fool around with a cute girl and get closer to getting in the pants of my crush with one bird
+
+3:20pm
+
 rock
 with one rock
+
+3:57pm
+
 or don't answer
 I can do this on my own
 I bet I can push her past where she thinks she's comfortable and make her like it on a first date
