@@ -34,18 +34,19 @@ Progress:
 | 5       | E    | Finished  | 1163       | 28790            | GGWP                                                         |
 | 5       | F    | Finished  | 1002       | 29792            | Don't Kiss or Make Up                                        |
 | 5       | Chat | Finished  | 920        | 30712            |                                                              |
-| 6       | A    | Written   | 1654       | 32366            | Watching Her Closely                                         |
-| 6       | B    | Written   | 1502       | 33868            | Fear Drives Her                                              |
-| 6       | C    | Written   | 1272       | 35140            | Inventing Your Own Problems                                  |
-| 6       | D    | Written   | 2037       | 37177            | Worse Than Death                                             |
-| 6       | E    | Written   | 634        | 37811            | Mad, Glad and Full of Sad                                    |
-| 6       | Chat | Written   | 1408       | 39219            |                                                              |
-| 7       | A    | Written   |            |                  | Girls don't like me                                          |
-| 7       | B    | Written   |            |                  | Fumbling the baddie                                          |
-| 7       | C    | Written   |            |                  | Have you considdered fucking off?                            |
-| 7       | D    | Written   |            |                  | Reconvening                                                  |
-| 7       | E    | Written   |            |                  | Yelling and screaming until I throw up                       |
-| 7       | Chat | Writing   |            |                  |                                                              |
+| 6       | A    | Finished  | 1654       | 32366            | Watching Her Closely                                         |
+| 6       | B    | Finished  | 1502       | 33868            | Fear Drives Her                                              |
+| 6       | C    | Finished  | 1272       | 35140            | Inventing Your Own Problems                                  |
+| 6       | D    | Finished  | 2037       | 37177            | Worse Than Death                                             |
+| 6       | E    | Finished  | 634        | 37811            | Mad, Glad and Full of Sad                                    |
+| 6       | Chat | Finished  | 1408       | 39219            |                                                              |
+| 7       | A    | Finished  | 1632       | 40851            | Girls don't like me                                          |
+| 7       | B    | Finished  | 822        | 41673            | Fumbling the baddie                                          |
+| 7       | C    | Finished  | 1397       | 43070            | Have you considdered fucking off?                            |
+| 7       | D    | Finished  | 1543       | 44613            | Reconvening                                                  |
+| 7       | E    | Finished  | 1263       | 45876            | Yelling and screaming until I throw up                       |
+| 7       | Chat | Finished  | 1483       | 47359            |                                                              |
+| 8       | A    | Writing   |            |                  |                                                              |
 
 Titles dropped:
 Armed With Knowledge but Untrained in it's Use

@@ -52,7 +52,7 @@ Back in the storage room Grace has finished unpacking her everything. A digital 
 
 I can be calm. I can be normal. I'm not at all having improper thoughts about someone I'm giving shelter to.
 
-"Setting aside how a lot of fashion is marketed under the assumption that it's only worth looking good to a male perspective. You were probably due for a wardrobe refresh. I doubt your sister would even recognise you without your trademark beanie let alone the rest of the stuff you're wearing."
+"Setting aside how a lot of fashion is marketed under the assumption that it's only worth looking good to a male perspective. You were probably due for a wardrobe refresh. I doubt your sister would even recognize you without your trademark beanie let alone the rest of the stuff you're wearing."
 
 "Good job remembering the course material, that almost sounded sensible. That does raise a question though: what do I do tomorrow? Just hide in here all day and eat leftovers when it's done?"
 
