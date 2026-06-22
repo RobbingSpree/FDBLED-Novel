@@ -22,12 +22,11 @@ Gavin goes to David's Sunday dinner and doesn't mention any of their recent enco
 David gets mad at this and the fact he now owes even more money
 
 Monday 19th April
-Gavin gets evicted and their told to move out by Sunday
+Gavin gets evicted and they're told to move out by Sunday
 
 Wednesday 21st April
 Gavin and David both get invited to Blake's party
 David organised makeup for the party 
-
 
 Friday 23rd April
 Party time
