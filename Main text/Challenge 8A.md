@@ -4,7 +4,7 @@ I don't want to tell Amity that any of her ideas were a good...but I've been sle
 
 Not gonna use a blanket though. 
 
-Those things are just as dangerous as a fishing net is to a mermaid, I can't stand getting tangled in them or the nightmares they bring. To have developed way more empathy for marine life thanks to that death trap of a sleep aid, and then to have had this empathy forced on me against my will justifies any revenge I take on her from here on out. So if Amity tries to drape a blanket over me when I doze off one more time I'm going to...
+Those things are just as dangerous as a fishing net is to a mermaid, I can't stand getting tangled in them or the nightmares they bring. To have developed way more empathy for marine life thanks to that death trap of a sleep aid, and to have had this empathy forced on me against my will justifies any revenge I take on her from here on out. So if Amity tries to drape a blanket over me when I doze off one more time I'm going to...
 
 Breathe.
 
