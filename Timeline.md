@@ -76,5 +76,8 @@ Grace starts self harming again
 Friday 7th May
 Grace Mel second date
 
+Thursday 13th May
+Jill and Aaron go to gym together 
+
 Friday 14th May
 Challenge 8 occurs

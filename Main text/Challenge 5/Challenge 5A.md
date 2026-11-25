@@ -30,7 +30,7 @@ Wait...ladies ARE allowed to cry...and I NEED to act like a believable lady...
 
 ...can't cry on command though and the moment has passed. I'll cry next time, for sure.
 
-I didn't realise how used to seeing Amity I was until this morning. I fully expected the same skater chick is been taunting and teasing the last few weeks to open the door. The same lady I left here last night. But no. It was David. He looks so alien now, and awkward. Why did he looks so much more vibrant and excited when being forced to dress like a girl? Is it a little of that anonymity letting him act without his past or other's preconceptions weighing him down.
+I didn't realise how used to seeing Amity I was until this morning. I fully expected the same skater chick is been taunting and teasing the last few weeks to open the door. The same lady I left here last night. But no. It was David. He looks so alien now, and awkward. Why did he look so much more vibrant and excited when being forced to dress like a girl? Is it a little of that anonymity letting him act without his past or other's preconceptions weighing him down.
 
 Should I keep making him dress like a girl then?
 
